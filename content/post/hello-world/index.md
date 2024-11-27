@@ -12,7 +12,7 @@ weight: 1       # You can add weight to some posts to override the default sorti
 ---
 
 
-## Chapter 83 - Request to the Security Personnel ~Touch~
+## Chapter 83 - Request to the Security Personnel -Touch-
 
 When Kanako returned and opened the door from the entrance to the communal space and saw the scene, she couldn’t help but open her mouth with a gasp.
 
@@ -514,7 +514,7 @@ Touko couldn’t help but be curious about it.
 
 ---
 
-## Chapter 84 - Special Examination (1) ~Entrust your body to the flow of time~
+## Chapter 84 - Special Examination (1) -Entrust your body to the flow of time-
 
 Going back in time, it was Thursday, the day before the inter-class ball game competition.
 
@@ -588,7 +588,7 @@ It seemed that the same was true for Martina and the others in that not only wer
 
 Getting asked, Hatsumi humbly replied, 「Not as much as you who were his wives, but…」, as she showed a nostalgic look on her face.
 
-「I believe it was about a month after Sakuya-san passed away. A lot of strange people came to our house, did they not~?」
+「I believe it was about a month after Sakuya-san passed away. A lot of strange people came to our house, did they not-?」
 
 「Huh, but why?」
 
@@ -794,7 +794,7 @@ In contrast, Sera was wearing a white dress with lots of frills, just like when 
 
 Judging by appearance alone, she looked like a young lady of some sort.
 
-「Good work~. Now, let’s eat the bento!」
+「Good work-. Now, let’s eat the bento!」
 
 「You must be hungry, no? Which one do you want?」
 
@@ -864,7 +864,7 @@ After parting with his two elder sisters, Yuu was escorted by the nurse and secu
 
 ---
 
-## Chapter 85 - Special Examination (2) ~You’re the Only…~
+## Chapter 85 - Special Examination (2) -You’re the Only…-
 
 In contrast to the morning session, the afternoon session consisted of a personality assessment including a psychological test by a psychiatrist and an interview with a specialist in sexual problems.
 
@@ -1008,7 +1008,7 @@ That was because although he was an adult mentally, there was no change to the f
 
 「Ah, w, we didn’t mean to put that kind of pressure on you…」
 
-「Ah~.」
+「Ah-.」
 
 Seeing Yuu making a troubled face, the two showed a flustered look on their faces.
 
@@ -1048,7 +1048,7 @@ Having come this far, Yuu would not be surprised even if she were to ask him to 
 
 「My elder sister…is it?」
 
-Hmm~; Yuu fell into thoughts.
+Hmm-; Yuu fell into thoughts.
 
 For Yuu, who had actually had sexual relationships not only with Elena but also Sera, there was no reason to hesitate.
 
@@ -1198,7 +1198,7 @@ Speaking of a woman who was so innocent and prone to get excited…
 
 Yuu moved his upper body away a little and took a look at her face.
 
-「Nufufu, nghh~, suuuu… haaaa… H, huh?」
+「Nufufu, nghh-, suuuu… haaaa… H, huh?」
 
 For some reason she was pressing the tip of her nose against Yuu’s chest, and when he took her chin, he noticed that her mouth was loosened up.
 
@@ -1210,7 +1210,7 @@ He remembered that she was the person from the Japan White Cross Society who had
 
 ---
 
-## Chapter 86 - Special Examination (3) ~Scent Charm THE VIP ROOM~
+## Chapter 86 - Special Examination (3) -Scent Charm THE VIP ROOM-
 
 Yuu and Miku hugged each other and felt the warmth of each other’s body.
 
@@ -1318,7 +1318,7 @@ Yuu swept Miku’s long hair to her back, gradually moved up as he kissed her ne
 
 After gently stroking the ear with his upper and lower lips as if he was going to eat it, he licked the area around it using his lips and tongue.
 
-「Kuh… Nghh~~~, hnn~~~」
+「Kuh… Nghh---, hnn---」
 
 Holding Miku’s body, which was trembling slightly as she let out a stifled cry, with one arm, he stopped her face with his other hand as she tried to escape.
 
@@ -1380,7 +1380,7 @@ In part because she sported plenty of bulges in the places that should bulge, he
 
 Just as Yuu was about to immediately pounce on that body of hers, he was caught by Miku who had a wide smile on her face.
 
-「Take off your clothes too, Yuu! Hurry up and get naked! Naked! Let me sniff your smell here and there directly~!」
+「Take off your clothes too, Yuu! Hurry up and get naked! Naked! Let me sniff your smell here and there directly-!」
 
 「Yes…」
 
@@ -1460,7 +1460,7 @@ However, thinking about it the other way around, he would like to bring his face
 
 Not just a little bit, Miku seemed to be steeped fairly deep in her fetish.
 
-「Mu, haa~. So this is… the smell of a boy’s dick… Suu, haa, suu, haa. Nghh~~~… Smelling such a thick male scent, I might end up getting addicted to it.」
+「Mu, haa-. So this is… the smell of a boy’s dick… Suu, haa, suu, haa. Nghh---… Smelling such a thick male scent, I might end up getting addicted to it.」
 
 「T, that’s… good for you, I guess.」
 
@@ -1478,7 +1478,7 @@ If anything, for Yuu who had accumulated a fair amount of experience since enter
 
 He put his hand on her head and called out several times, making her turn his head toward him.
 
-「What is it~… Yuu?」
+「What is it-… Yuu?」
 
 As Miku looked up at Yuu with a melty expression, a drool was dripping from the corner of her mouth.
 
@@ -1568,7 +1568,7 @@ In the end, Yuu continued the cunnilingus until Miku came one more time.
 
 ---
 
-## Chapter 87 - Special Examination (4) ~WHITE LOVE~
+## Chapter 87 - Special Examination (4) -WHITE LOVE-
 
 When he rolled Miku, who had just come continuously with cunnilingus and was completely drained of strength, onto her side and then raised his upper body to look at her, beastly desires blazed up inside of Yuu for that slovenly feminine body.
 
@@ -1626,7 +1626,7 @@ Starting out with pecking-like kisses, they gradually moved to passionate kisses
 
 Taking Miku’s right hand with his left hand, he intertwined their fingers to form a lover’s hold.
 
-「Nnnh~n… Nmm, chuu, chuu, chuupa… Aahn, I can feel it… that your hard and hot dick is inside me… Hnn, ahn! No way, even though you’re not moving, I feel tingles in the depth of my belly! Nghh… Amm… Lick, slurp, chuuu…」
+「Nnnh-n… Nmm, chuu, chuu, chuupa… Aahn, I can feel it… that your hard and hot dick is inside me… Hnn, ahn! No way, even though you’re not moving, I feel tingles in the depth of my belly! Nghh… Amm… Lick, slurp, chuuu…」
 
 After exchanging deep kisses as if they were devouring each other’s mouths, Yuu pulled his lips away just a little and whispered with a smile.
 
@@ -1678,7 +1678,7 @@ Leaning over Miku, Yuu buried his face in her moist, sweat-soaked neck as he pok
 
 As a matter of fact, as he got clamped down by her tight vagina, which was unique to virgins, Yuu’s own pleasure had also gone up fairly high, and he was close to reaching his limit.
 
-「Ahn, ahn, ahn~! No, that’s… too intense… cumming, cumming… Aahn! No more… I’m cumming… C, c, cumming~~~!!!」
+「Ahn, ahn, ahn-! No, that’s… too intense… cumming, cumming… Aahn! No more… I’m cumming… C, c, cumming---!!!」
 
 Just as Miku, who squeezed his hands so tightly that fingernail marks were left behind on them, was about to reach climax, the folds of her vagina contracted and tightened as if trying to squeeze the sperm out of the penis that was buried deep inside her.
 
@@ -1778,7 +1778,7 @@ As he received not only breast pressure on the pole, but also stimulation from m
 
 「Haa, haa. Then, I’m going to cum just like this, but between swallowing it or having it sprayed on your face, choose the one that you like.」
 
-「Hmm~… I’m torn, but… It’s a rare chance, so I want to swallow your semen, Yuu. Chuu, chuu… Ahaan, it has started letting out clear juices already!」
+「Hmm-… I’m torn, but… It’s a rare chance, so I want to swallow your semen, Yuu. Chuu, chuu… Ahaan, it has started letting out clear juices already!」
 
 「Nghh… Your mouth and boobs… feel so good, after all.」
 
@@ -1854,7 +1854,7 @@ Even so, Miku was calling out to the sperm in her womb, hoping to get pregnant w
 
 「Say, big sis Miku」
 
-「What is it~, Yuu?」
+「What is it-, Yuu?」
 
 He noticed that by the time they were done with the paizuri, dusk was descending outside the window and the room was getting fairly darker.
 
@@ -1940,7 +1940,7 @@ Eventually, as Yuu himself began to move and thrust his hips upward, Miku’s co
 
 ---
 
-## Chapter 88 - Weekend Plans ~Confession~
+## Chapter 88 - Weekend Plans -Confession-
 
 It was the evening of the day after Yuu underwent the special examination at the Saitama University Hospital and had sex with his half-blood elder sister, Miku, at Rumiko’s request.
 
