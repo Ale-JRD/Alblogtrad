@@ -1,14 +1,11 @@
 ---
-
-title: trad-1v1
-description: trad 1
-slug: trad1v1
+title: trad-2
+description: trad 2
+slug: trad2
 date: 2024-11-27
-
 ---
 
-
-## Chapter 83 - Request to the Security Personnel -Touch-
+# Chapter 83 - Request to the Security Personnel -Touch-
 
 When Kanako returned and opened the door from the entrance to the communal space and saw the scene, she couldn’t help but open her mouth with a gasp.
 
@@ -226,7 +223,7 @@ Kanako muttered as she turned around and looked at the timetable.
 
 Yuu remembered that Inui Rumiko, an official of the Ministry of Health, Labor and Welfare, had contacted them the night before yesterday.
 
-●○●○●○●○●
+---
 
 At 8:30 on Sunday morning, Yuu came to the Saitama Training Center of MALSOK, Kanako and Touko’s company.
 
@@ -486,7 +483,7 @@ Yuu rubbed them thoroughly in a trance.
 
 Kanako was bewildered as she suddenly got her breasts rubbed, but perhaps ending up finding it somewhat pleasurable, she let out a sweet cry without trying to make Yuu stop even after grabbing him by the shoulders.
 
-●○●○●○●○●
+---
 
 The self-defense lesson came to an end after about an hour, and Kanako and Touko were in the middle of getting dressed.
 
@@ -510,7 +507,7 @@ Touko couldn’t help but be curious about it.
 
 ---
 
-## Chapter 84 - Special Examination (1) -Entrust your body to the flow of time-
+# Chapter 84 - Special Examination (1) -Entrust your body to the flow of time-
 
 Going back in time, it was Thursday, the day before the inter-class ball game competition.
 
@@ -678,7 +675,7 @@ In her mind, Yuu was probably still just an innocent 15-year-old boy.
 
 Having flipped and scanned through the pamphlet, Yuu turned to Martina, who still had a worried look on her face, and answered with a smile to reassure her.
 
-●○●○●○●○●
+---
 
 After learning self-defense techniques from the security personnel, Kanako and Touko, first thing Sunday morning, Yuu headed for the Saitama University Hospital located in the prefectural capital.
 
@@ -738,7 +735,7 @@ With a giggle and a mischievous smile on her face, Sera moved away.
 
 The fact that you could never tell where she learned such words, or whether she was being serious or joking, was the curious thing about Sera, and Yuu couldn’t help by get exasperated by it.
 
-●○●○●○●○●
+---
 
 「Thank you for your hard work. Now then, after a one-hour break, we will start the afternoon examination, okay?」
 
@@ -860,7 +857,7 @@ After parting with his two elder sisters, Yuu was escorted by the nurse and secu
 
 ---
 
-## Chapter 85 - Special Examination (2) -You’re the Only…-
+# Chapter 85 - Special Examination (2) -You’re the Only…-
 
 In contrast to the morning session, the afternoon session consisted of a personality assessment including a psychological test by a psychiatrist and an interview with a specialist in sexual problems.
 
@@ -892,7 +889,7 @@ Maybe they wanted to know the type of woman he liked, as well as the scope of hi
 
 When he was told that he could touch any part of their body he liked without reservation, he was at a loss what to do, so at the beginning, he only softly patted their heads and lightly hugged them, but gradually he became bolder and went ahead and touched their breasts and buttocks.
 
-●○●○●○●○●
+---
 
 After Yuu finished the afternoon examination, the nurse led him to a small room where Rumiko and another woman in her late 20s, wearing a plain suit, were waiting for him.
 
@@ -1112,7 +1109,7 @@ After that, he asked them to lead him to the room where the woman was waiting fo
 
 Rather, he couldn’t help but get curious about the fact that they had met once.
 
-●○●○●○●○●
+---
 
 It was a room on the top floor of D wing.
 
@@ -1184,7 +1181,7 @@ Looking down at her, Yuu could see her cleavage through the open collar of her g
 
 Come to think of it, she said her bust was 89cm, huh.
 
-When he held her so tightly that their bodies were sticking very closely to each other, *squiiish* he could feel her soft breasts getting pressed against his chest.
+When he held her so tightly that their bodies were sticking very closely to each other, _squiiish_ he could feel her soft breasts getting pressed against his chest.
 
 As he was savoring the softness of her body and the heat of her cheeks, the object left on the low table came into his sight.
 
@@ -1206,7 +1203,7 @@ He remembered that she was the person from the Japan White Cross Society who had
 
 ---
 
-## Chapter 86 - Special Examination (3) -Scent Charm THE VIP ROOM-
+# Chapter 86 - Special Examination (3) -Scent Charm THE VIP ROOM-
 
 Yuu and Miku hugged each other and felt the warmth of each other’s body.
 
@@ -1384,7 +1381,7 @@ He ended up getting overwhelmed by Miku, who took one eighty and looked at him w
 
 Why are my elder sisters all like this, I wonder? Yuu couldn’t help but hold such a doubt.
 
-●○●○●○●○●
+---
 
 Not only did Yuu get stripped naked by the hands of Miku, who got more aroused the more he exposed his naked body, he even got licked by her on top of him.
 
@@ -1564,7 +1561,7 @@ In the end, Yuu continued the cunnilingus until Miku came one more time.
 
 ---
 
-## Chapter 87 - Special Examination (4) -WHITE LOVE-
+# Chapter 87 - Special Examination (4) -WHITE LOVE-
 
 When he rolled Miku, who had just come continuously with cunnilingus and was completely drained of strength, onto her side and then raised his upper body to look at her, beastly desires blazed up inside of Yuu for that slovenly feminine body.
 
@@ -1682,7 +1679,7 @@ Just as Miku, who squeezed his hands so tightly that fingernail marks were left 
 
 After a moment’s pause, Yuu was also assailed by pleasure that ran through his entire body from the waist, and as he failed to resist it, he ended up shooting off his sperm.
 
-*Splurt, splurt, splurt* As if getting led to ejaculate on its own, giving him no time to delay the climax, he ended up pouring all of it into Miku.
+_Splurt, splurt, splurt_ As if getting led to ejaculate on its own, giving him no time to delay the climax, he ended up pouring all of it into Miku.
 
 「Ah… Aah… Haan… Yuu, it’s coming out… your hot stuff… so much of it… Ahaa… it’s so amazing…」
 
@@ -1694,7 +1691,7 @@ After the ejaculation continued for a while, he let go of the hands he had been 
 
 Yuu also hugged Miku back lovingly.
 
-●○●○●○●○●
+---
 
 「Fwaaaah… Yuu’s semen and my naughty juices are mixed together, making a very lewd smell.」
 
@@ -1732,9 +1729,9 @@ She had big breasts, so he couldn’t afford not to put them to good use here.
 
 Miku looked up at Yuu with an innocent face.
 
-●○●○●○●○●
+---
 
- Yuu stood on his knees over Miku, making sure not to put his body weight on her stomach, and put his erect penis in the middle of her breasts.
+Yuu stood on his knees over Miku, making sure not to put his body weight on her stomach, and put his erect penis in the middle of her breasts.
 
 They boasted such a volume that they could already sandwich it as it was, but he asked Miku to sandwich them from both sides with her arms folded at the elbows.
 
@@ -1780,7 +1777,7 @@ As he received not only breast pressure on the pole, but also stimulation from m
 
 「Amm… Feel free to cum anytime you want, so give me a lot of it.」
 
-*Chuu, chuu* Thinking that he would ejaculate faster if she did so, Miku took the glans into her mouth and sucked on it.
+_Chuu, chuu_ Thinking that he would ejaculate faster if she did so, Miku took the glans into her mouth and sucked on it.
 
 The paizuri continued for a while.
 
@@ -1804,7 +1801,7 @@ As such, she tightened her armpits as much as she could as she stroked the pole 
 
 Miku, perceiving that the time had come as Yuu placed his hand on her head, leaned forward and took his penis into her mouth in one gulp as if she was preying on it.
 
-As soon as she felt the penis she had taken into her mouth tremble a little, *splurt* a gush of cloudy liquid came out and filled her mouth.
+As soon as she felt the penis she had taken into her mouth tremble a little, _splurt_ a gush of cloudy liquid came out and filled her mouth.
 
 「Nghh, nmmm?!」
 
@@ -1816,9 +1813,9 @@ However, as she had personally said that she wanted to swallow it, she tightly p
 
 She ended up spilling some of it, but there was nothing that could be done about it.
 
-*Spurt, spurt* Not stopping after only one shot, the ejaculation lasted for several shots, and even after Yuu pulled his hips back a little, not only was there cloudy liquid peeking out of her gaping mouth still, there were also sticky white threads hanging from her lips.
+_Spurt, spurt_ Not stopping after only one shot, the ejaculation lasted for several shots, and even after Yuu pulled his hips back a little, not only was there cloudy liquid peeking out of her gaping mouth still, there were also sticky white threads hanging from her lips.
 
-●○●○●○●○●
+---
 
 Thirsty, Yuu opened the refrigerator installed in the room and took the liberty of taking out a can of tea and drinking it.
 
@@ -1918,7 +1915,7 @@ Holding each other’s hands, he slowly got connected with Miku, who was staring
 
 Miku, who knitted her eyebrows, collapsed onto Yuu’s chest with a plop.
 
-At that moment, *squiiish* her ample breasts were pressed hard against Yuu’s chest.
+At that moment, _squiiish_ her ample breasts were pressed hard against Yuu’s chest.
 
 「Somehow… I managed to put it in, but… as I thought… y, your dick is so big, Yuu.」
 
@@ -1928,15 +1925,15 @@ At that moment, *squiiish* her ample breasts were pressed hard against Yuu’s c
 
 Raising her face, Miku smiled and pressed her lips against his.
 
-*Chuupa, chuupa* After exchanging kisses, Miku started shaking her hips.
+_Chuupa, chuupa_ After exchanging kisses, Miku started shaking her hips.
 
-*Jiggle jiggle* Ending up getting drawn to her breasts, which swayed wildly each time she did, he let go one of her hands, and then grabbed and fondled it, scooping it up from under her.
+_Jiggle jiggle_ Ending up getting drawn to her breasts, which swayed wildly each time she did, he let go one of her hands, and then grabbed and fondled it, scooping it up from under her.
 
 Eventually, as Yuu himself began to move and thrust his hips upward, Miku’s coquettish cry grew higher and higher in intensity.
 
 ---
 
-## Chapter 88 - Weekend Plans -Confession-
+# Chapter 88 - Weekend Plans -Confession-
 
 It was the evening of the day after Yuu underwent the special examination at the Saitama University Hospital and had sex with his half-blood elder sister, Miku, at Rumiko’s request.
 
@@ -2239,4 +2236,3 @@ As a result, just how out of control his two elder sisters would become?
 For his part, Yuu didn’t not feel a little bit scared, but deep down, his heart was pounding wildly in anticipation, and he was looking forward to the weekend.
 
 ---
-

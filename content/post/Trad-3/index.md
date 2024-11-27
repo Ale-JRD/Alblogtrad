@@ -1,12 +1,11 @@
 ---
-title: trad-2
-date: 2023-09-07
-slug: trad-2
-description: Sample article showcasing basic Markdown syntax and formatting for HTML elements.
+title: trad-3
+description: trad 3
+slug: trad3
+date: 2024-11-27
 ---
 
-
-## Chapter 89 - Farewell Party (1) -M-
+# Chapter 89 - Farewell Party (1) -M-
 
 Friday finally arrived.
 
@@ -80,7 +79,7 @@ If you looked at that part only, it was very charming.
 
 The Yuu of that time simply thought about it in a carefree manner.
 
-●○●○●○●○●
+---
 
 「I’m done!」
 
@@ -110,7 +109,7 @@ It was a red rope that had been tied into a knot beforehand.
 
 Moreover, when she looked down at Sera’s feet, she saw that the zipper of the Boston bag she had brought with her was fully opened, revealing a variety of restraint tools and multicolored adult toys used in SM play.
 
-●○●○●○●○●
+---
 
 「Kuuuuh… N, noo, this is just… Hey, Sera, untie me already!」
 
@@ -270,7 +269,7 @@ Now Elena’s small buttocks were bright red.
 
 When Sera spoke to her, Elena shook her head as if she didn’t want it, but the glimpse of her cheeks showed that they were flushed.
 
-Moreover, *wheeze, wheeze* she was breathing so hard that they could tell even from a distance.
+Moreover, _wheeze, wheeze_ she was breathing so hard that they could tell even from a distance.
 
 Elena’s slender and beautiful backside was exposed defenselessly, and she had been shaking her hips slightly since a while ago. It was as if begging him to quickly spank her.
 
@@ -444,7 +443,7 @@ Yuu and Sera smiled at each other, and Elena, hearing this, let out an inexpress
 
 However, looking at the fact that her nipple, was still being caressed by Yuu with the rotor even now, was standing straight, and clear juices were trickling down from her crotch, perhaps her body wished to be tortured even more.
 
-●○●○●○●○●
+---
 
 「Which- one- should- I- use- I- wonder-… Alright, I choose you!」
 
@@ -514,7 +513,7 @@ However, Sera’s attack was not over just yet.
 
 With a click, the vibrator at the very bottom of the machine was switched on.
 
-Elena’s moaning made it hard to hear, but *buzz, buzz* they could hear the sound of something moving.
+Elena’s moaning made it hard to hear, but _buzz, buzz_ they could hear the sound of something moving.
 
 「Is it moving inside?」
 
@@ -542,7 +541,7 @@ With his eyes glued to Elena, who was moaning intermittently with the vibrator s
 
 ---
 
-## Chapter 90 - Farewell Party (2) -Make it slow XXX (I want you)-
+# Chapter 90 - Farewell Party (2) -Make it slow XXX (I want you)-
 
 「Take that!」
 
@@ -920,7 +919,7 @@ While Yuu continued to ejaculate, Sera let out a long coquettish cry to the limi
 
 ---
 
-## Chapter 91 - Farewell Party 3) -Instinct-
+# Chapter 91 - Farewell Party (3) -Instinct-
 
 Phew. That felt crazy great. It’s nice to do something like this once in a while. Well then…
 
@@ -1030,11 +1029,11 @@ Every time Yuu slammed his hips against her, his penis knocked her womb entrance
 
 Although unfortunately they were not visible from Yuu’s position, her perfectly shaped breasts were also swaying and jiggling.
 
-*Smack, smack, smack* The sound of him pounding her buttocks echoes through the room, and Sera’s coquettish voice grew higher in tone.
+_Smack, smack, smack_ The sound of him pounding her buttocks echoes through the room, and Sera’s coquettish voice grew higher in tone.
 
 「Ahh… Ahee… I, I, I’m cumming… from havinggg, my inside drilled, by Yuu’s dick… Nghh, ahh, I’m going to… cum already… C, cummingggg!!!!」
 
-●○●○●○●○●
+---
 
 「I think I went a little too rough earlier. I’m sorry, big sis Sera.」
 
@@ -1068,7 +1067,7 @@ Sera pulled down her chin and peeked at her own private part.
 
 Sera twisted her body and turned around. At the same time, she reached out her hand and stroked Yuu’s face.
 
-Yuu also brought his face close to hers with his tongue sticking out, and *lick, lick, chuupa, chuupa* they exchanged deep kisses.
+Yuu also brought his face close to hers with his tongue sticking out, and _lick, lick, chuupa, chuupa_ they exchanged deep kisses.
 
 When he was pounding her hard from the back earlier, he actually almost came too.
 
@@ -1080,7 +1079,7 @@ However, Yuu was about to reach the limit of his endurance.
 
 As if this was the last spurt, he increased the speed of his thrusts.
 
-*Fwop, fwop* As the lewd wet sound grew more and more intense, cloudy liquid started to seep out of the coupling tools, soaking the edge of the bed and also the floor.
+_Fwop, fwop_ As the lewd wet sound grew more and more intense, cloudy liquid started to seep out of the coupling tools, soaking the edge of the bed and also the floor.
 
 「Nghh, kuha! It feels so good, inside you, big sis Sera… So good that, I’m going to cum already!」
 
@@ -1098,7 +1097,7 @@ As if prompted by Sera’s words, Yuu reached climax as he thrust his penis up a
 
 Sera, who had received the ejaculation in her womb, gently stroked her lower abdomen with a satisfied expression on her face, but suddenly, as if her threads had been severed, she went limp.
 
-●○●○●○●○●
+---
 
 Separating himself from Sera, who had gone limp and drained of strength, Yuu then lay her down on the bed and got up.
 
@@ -1110,7 +1109,7 @@ But for the time being, he simply untied the leash that was tied to the doorknob
 
 When Yuu came back into the room again, he saw Elena lying face down in a very unsightly position.
 
-Seeing Elena, who had her mouth gagged, go *mumumumu* as she looked at him desperately, Yuu smiled as he helped her up.
+Seeing Elena, who had her mouth gagged, go _mumumumu_ as she looked at him desperately, Yuu smiled as he helped her up.
 
 「Big sis, did you think you got left alone again? You’ve got it wrong. I thought you might be thirsty too, so…」
 
@@ -1128,7 +1127,7 @@ After patting her head lightly, he poured barley tea into the glass.
 
 「Big sis, open your mouth.」
 
-*Aan-* In front of Elena, who obediently did as she was told, Yuu swirled the glass and poured the barley tea into his mouth.
+_Aan-_ In front of Elena, who obediently did as she was told, Yuu swirled the glass and poured the barley tea into his mouth.
 
 He then poured the contents into Elena’s open mouth.
 
@@ -1162,7 +1161,7 @@ When Yuu got down to his knees right in front of Elena and thrust his hips out, 
 
 Elena was still restrained, but she took the whole penis into her mouth and sucked on it with such vigor that it seemed as if she was a dog that had been given her favorite food.
 
-Immediately after she licked it all over, not only with her tongue but also by moving her face up and down, *slurp, slurp* she stuffed her mouth with it and began to suck on it vigorously.
+Immediately after she licked it all over, not only with her tongue but also by moving her face up and down, _slurp, slurp_ she stuffed her mouth with it and began to suck on it vigorously.
 
 In an instant, Yuu’s penis rapidly became full of vigor and stood tall, piercing into the sky.
 
@@ -1262,7 +1261,7 @@ Yuu nodded his head and penetrated Elena without hesitation.
 
 ---
 
-## Chapter 92 - Farewell Party (4) -Peach-colored Breath-
+# Chapter 92 - Farewell Party (4) -Peach-colored Breath-
 
 「Haan, ahn, aahn! E, Elena, your tongue is going in there! Hnn, hiii!」
 
@@ -1328,7 +1327,7 @@ As Elena continued to passionately give her cunnilingus even while letting out a
 
 The moment she stretched her legs straight and arched her body back, he could see her long platinum-blonde hair sway to the back and her beautiful breasts jiggle.
 
-*Splash* As soon as Elena, who was hit in the face by a cloudy, muddy squirt, showed a satisfied look on her face, she fell flat with her buried face in her wet nether region.
+_Splash_ As soon as Elena, who was hit in the face by a cloudy, muddy squirt, showed a satisfied look on her face, she fell flat with her buried face in her wet nether region.
 
 Fearing that she might suffocate if she stayed as she was, Yuu held Elena with both hands and raised her upper body.
 
@@ -1384,7 +1383,7 @@ Sera licked Elena’s mouth, which was trickling with drool, without hesitation 
 
 As if petting her, she stroked Elena’s head and said…
 
-「You see, I’ve had experiences with both boys and girls, but this is my first time doing it with a boy and a girl at the same time.  My first threesome, it’s very fun! I guess this, too, is thanks to you two, Yuu, Elena.」
+「You see, I’ve had experiences with both boys and girls, but this is my first time doing it with a boy and a girl at the same time. My first threesome, it’s very fun! I guess this, too, is thanks to you two, Yuu, Elena.」
 
 「It makes me happy to hear you say that… Nghh!」
 
@@ -1422,7 +1421,7 @@ As Yuu continued to ejaculate, Elena’s body continued to quiver as she accepte
 
 Sera, who was looking at those two’s faces, also let out a sexy breath as if she couldn’t contain her feelings.
 
-●○●○●○●○●
+---
 
 Yuu, feeling fatigued as expected, lay on his back on the bed after only lightly wiping his penis with a tissue.
 
@@ -1630,7 +1629,7 @@ Elena was frustrated, but Sera, the more experienced one, won in a dignified man
 
 ---
 
-## Chapter 93 - Birthday Party (1) -Another Saturday-
+# Chapter 93 - Birthday Party (1) -Another Saturday-
 
 Saturday, June 16th.
 
@@ -1722,7 +1721,7 @@ When they were done with their lunch, at 1:30 p.m., Sayaka called the student co
 
 Sayaka proceeded with the conversation solely in a businesslike manner, and when she put down the phone after about 10 minutes, she sported a bitter smile on her face.
 
-When asked why, it seemed that Mitsuse Rinne, the other side’s student council president, had persistently asked her to let her talk to Yuu, but Sayaka readily rejected it, saying, 「But I refuse」,  and hung up.
+When asked why, it seemed that Mitsuse Rinne, the other side’s student council president, had persistently asked her to let her talk to Yuu, but Sayaka readily rejected it, saying, 「But I refuse」, and hung up.
 
 That young lady… She was a flamboyant beauty, but quite an interesting person.
 
@@ -1782,7 +1781,7 @@ After thinking that far in a short time, Yuu decided to obediently follow the pr
 
 Looking at the phone number of the taxi company posted at the reception desk on the first floor of the administration building, they called a taxi from the green public phone installed there, and it arrived in less than 10 minutes.
 
-●○●○●○●○●
+---
 
 When they arrived and got off the taxi, charged with only basic fare as one would expect, stood in front of them were a twin of towering apartments.
 
@@ -1898,7 +1897,7 @@ When Yuu rested his head on Riko’s shoulder like a spoiled child, Eimi raised 
 
 Sayaka nodded her head with a solemn look on her face.
 
-●○●○●○●○●
+---
 
 After chatting and joking around for a while, the clock showed that it was about turn 4:00 p.m.
 
@@ -1942,7 +1941,7 @@ When Yuu took Riko’s hand, she smiled happily.
 
 Sayaka, who was apparently incapable of doing housework, sported a refreshed look on her face, while Eimi looked a little frustrated.
 
-●○●○●○●○●
+---
 
 「Kuh…the onions are stinging my eyes. Tears are…」
 
@@ -1950,7 +1949,7 @@ Sayaka, who was apparently incapable of doing housework, sported a refreshed loo
 
 「Thank you.」
 
-*Chop, chop, chop* Yuu was chopping the onions skillfully, but as tears began to leak from his eyes, Riko wiped them away with a handkerchief.
+_Chop, chop, chop_ Yuu was chopping the onions skillfully, but as tears began to leak from his eyes, Riko wiped them away with a handkerchief.
 
 After washing the rice and setting it in the rice cooker, they decided to split the task with Yuu handling the main dish, the hamburger steak, and Riko handling the garnish, the vegetables and soup.
 
@@ -2002,7 +2001,7 @@ It seemed that in this world, men who could cook were homely and preferred.
 
 Perhaps because the words 「marriage」 and 「affinity」 were suddenly mentioned, Riko went red in the face and turned her head down.
 
-However, she took a piece of the carrot glace, which was located at the end of her gaze, with her chopsticks, *fuu, fuu* blew it to cool it down, and then held it out to Yuu.
+However, she took a piece of the carrot glace, which was located at the end of her gaze, with her chopsticks, _fuu, fuu_ blew it to cool it down, and then held it out to Yuu.
 
 「Do you want to taste it?」
 
