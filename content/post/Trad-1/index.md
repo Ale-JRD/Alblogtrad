@@ -139,11 +139,7 @@ Getting closer and closer to that moment, they hugged each other tightly, and Yu
 
 _Splurt, splurt_ At the same time as a large amount of semen was poured into her womb, _splash, splash_ Youko reached climax and squirted grandly, soaking Yuu’s lower abdomen once again.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Currently, in front of Yuu, Youko was standing on the left and Kazumi was standing on the right side with their hands pressed against the door, sticking their buttocks out a little and exposing their bare lower bodies.
 
@@ -221,11 +217,7 @@ Finding Youko adorable as she begged him while shaking her buttocks slightly, Yu
 
 「Noo… I, I’m still fine, so…ahn!」
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Smack, smack, smack!
 
@@ -287,11 +279,7 @@ Saying so, Yuu started to pump in and out slowly.
 
 「Ahn, thank you, Yuu-kun… Hnn, hnn, hnn, auu! But, the good feeling is… never stopping! Hyaan! I feel like… I’m going to cum again!」
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 The moment they came, both Youko and Kazumi clamped down on Yuu so hard that it felt as if they were trying to squeeze the sperm out of him, but despite that, he had been able to endure it, which was probably because he had ejaculated twice and because he pulled his penis out immediately and paused for a moment.
 
@@ -343,11 +331,7 @@ For Yuu, this was his third shot, but partly because he had held it in for an ex
 
 Both Youko and Kazumi were savoring it in a dreamy state.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「Yuu-kun, are you okay with the bus time?」
 
@@ -451,11 +435,7 @@ Getting asked by Youko, Kazumi boldly nodded her head in agreement.
 
 The two returned to their own classroom as they talked amicably in such a manner.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 #
 
@@ -645,11 +625,7 @@ Yuu was also stroking around the bodies of Sayaka and Eimi, having a feel of the
 
 The feast held by the four of them had only just begun.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 When Yuu pumped a large amount of semen into Riko’s womb after she reached climax several times, she ended up collapsing.
 
@@ -723,11 +699,7 @@ When Eimi shook her head from side to side as if she was trying to resist, her f
 
 It seemed that it would not be long before she reached climax for the second time.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「Fufufu, being the third one, the waiting time was tough, but I am very happy that it allowed me to be alone with you like this, Yuu. Still… Even though you have ejaculated twice, your… umm, should I say sperm? … sure is unbelievably vigorous, isn’t it?」
 
@@ -871,11 +843,7 @@ However, including Sayaka, who was his first partner, Riko and Eimi were also sp
 
 Even now that he had experienced sex with a number of women, there was no change to that fact
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 # Chapter 86 - Special Examination (3) -Scent Charm THE VIP ROOM-
 
@@ -1055,11 +1023,7 @@ He ended up getting overwhelmed by Miku, who took one eighty and looked at him w
 
 Why are my elder sisters all like this, I wonder? Yuu couldn’t help but hold such a doubt.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Not only did Yuu get stripped naked by the hands of Miku, who got more aroused the more he exposed his naked body, he even got licked by her on top of him.
 
@@ -1237,11 +1201,7 @@ Yuu, who had been seized by a strange arousal after not only getting his face co
 
 In the end, Yuu continued the cunnilingus until Miku came one more time.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 # Chapter 87 - Special Examination (4) -WHITE LOVE-
 
@@ -1373,11 +1333,7 @@ After the ejaculation continued for a while, he let go of the hands he had been 
 
 Yuu also hugged Miku back lovingly.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「Fwaaaah… Yuu’s semen and my naughty juices are mixed together, making a very lewd smell.」
 
@@ -1415,11 +1371,7 @@ She had big breasts, so he couldn’t afford not to put them to good use here.
 
 Miku looked up at Yuu with an innocent face.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Yuu stood on his knees over Miku, making sure not to put his body weight on her stomach, and put his erect penis in the middle of her breasts.
 
@@ -1505,11 +1457,7 @@ She ended up spilling some of it, but there was nothing that could be done about
 
 _Spurt, spurt_ Not stopping after only one shot, the ejaculation lasted for several shots, and even after Yuu pulled his hips back a little, not only was there cloudy liquid peeking out of her gaping mouth still, there were also sticky white threads hanging from her lips.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Thirsty, Yuu opened the refrigerator installed in the room and took the liberty of taking out a can of tea and drinking it.
 
@@ -1625,8 +1573,4 @@ _Jiggle jiggle_ Ending up getting drawn to her breasts, which swayed wildly each
 
 Eventually, as Yuu himself began to move and thrust his hips upward, Miku’s coquettish cry grew higher and higher in intensity.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345

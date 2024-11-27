@@ -79,11 +79,7 @@ If you looked at that part only, it was very charming.
 
 The Yuu of that time simply thought about it in a carefree manner.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「I’m done!」
 
@@ -113,11 +109,7 @@ It was a red rope that had been tied into a knot beforehand.
 
 Moreover, when she looked down at Sera’s feet, she saw that the zipper of the Boston bag she had brought with her was fully opened, revealing a variety of restraint tools and multicolored adult toys used in SM play.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「Kuuuuh… N, noo, this is just… Hey, Sera, untie me already!」
 
@@ -451,11 +443,7 @@ Yuu and Sera smiled at each other, and Elena, hearing this, let out an inexpress
 
 However, looking at the fact that her nipple, was still being caressed by Yuu with the rotor even now, was standing straight, and clear juices were trickling down from her crotch, perhaps her body wished to be tortured even more.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「Which- one- should- I- use- I- wonder-… Alright, I choose you!」
 
@@ -551,11 +539,7 @@ Sera’s hand reached down from around Yuu’s stomach and gently stroked his bu
 
 With his eyes glued to Elena, who was moaning intermittently with the vibrator stuffed into her genitals, Yuu entrusted the caressing of his crotch to Sera.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 # Chapter 90 - Farewell Party (2) -Make it slow XXX (I want you)-
 
@@ -933,11 +917,7 @@ There, after enduring for a long time, Yuu finally reached ejaculation tonight.
 
 While Yuu continued to ejaculate, Sera let out a long coquettish cry to the limit, and after her body jerked and quivered over and over again, she went limp, drained of strength.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 # Chapter 91 - Farewell Party (3) -Instinct-
 
@@ -1053,11 +1033,7 @@ _Smack, smack, smack_ The sound of him pounding her buttocks echoes through the 
 
 「Ahh… Ahee… I, I, I’m cumming… from havinggg, my inside drilled, by Yuu’s dick… Nghh, ahh, I’m going to… cum already… C, cummingggg!!!!」
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 「I think I went a little too rough earlier. I’m sorry, big sis Sera.」
 
@@ -1121,11 +1097,7 @@ As if prompted by Sera’s words, Yuu reached climax as he thrust his penis up a
 
 Sera, who had received the ejaculation in her womb, gently stroked her lower abdomen with a satisfied expression on her face, but suddenly, as if her threads had been severed, she went limp.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Separating himself from Sera, who had gone limp and drained of strength, Yuu then lay her down on the bed and got up.
 
@@ -1287,11 +1259,7 @@ Here comes the threesome. I’m sure it will turn into a nice memory for big sis
 
 Yuu nodded his head and penetrated Elena without hesitation.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 # Chapter 92 - Farewell Party (4) -Peach-colored Breath-
 
@@ -1453,11 +1421,7 @@ As Yuu continued to ejaculate, Elena’s body continued to quiver as she accepte
 
 Sera, who was looking at those two’s faces, also let out a sexy breath as if she couldn’t contain her feelings.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
 
 Yuu, feeling fatigued as expected, lay on his back on the bed after only lightly wiping his penis with a tissue.
 
@@ -1663,8 +1627,4 @@ Noticing that Elena was in a pretty dangerous state when they switched places fo
 
 Elena was frustrated, but Sera, the more experienced one, won in a dignified manner.
 
-<p>
-<p>
-<p>
-<p>
-<p>
+## 12345
