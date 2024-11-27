@@ -5,6 +5,8 @@ slug: trad1v2
 date: 2024-11-27
 ---
 
+<hr>
+
 # Chapter 79 - Inter-class Ball Game Competition (7) -Together-
 
 「Haan… Ahn… Hnn! Y, Yuu-kun, geez, you’re just like a baby. Do you like boobs that much?」
@@ -81,9 +83,9 @@ Yuu licked up Youko’s slender neck with his tongue, which was still dripping w
 
 「Feel free to cum. There, go ahead and cum, Youko!」
 
-「Nghh… Hnn, cumming! Ahn, Yuu-kun is making me cum! Ahn, aaaaaaaaah!! Cumming---!!!」
+「Nghh… Hnn, cumming! Ahn, Yuu-kun is making me cum! Ahn, aaaaaaaaah!! Cumming-!!」
 
-「amm, hnn, nmm, chuu… chuu, slurp, puha, lick… lick… Ahn, hnn… Yuu-kun… so lovely… Nghh, auu… Ahn! No, my body is… melting away---」
+「amm, hnn, nmm, chuu… chuu, slurp, puha, lick… lick… Ahn, hnn… Yuu-kun… so lovely… Nghh, auu… Ahn! No, my body is… melting away-」
 
 「Ah… Youko… Nghh, guh…」
 
@@ -231,7 +233,7 @@ Her hair, which had been neatly weaved into braids, had ended up becoming comple
 
 Sticking his upper body close to her back and holding her breasts tight with his right hand as he fondled them, Yuu made a sharp upward thrust all the way to her deepest part, and this time, he switched his movement to a circular one.
 
-「Ahiii! That’s… not good… Ahh! Ahh, ahh, ahh, aaaaaaaaaaaah! I, I, I’m cumming---!!!」
+「Ahiii! That’s… not good… Ahh! Ahh, ahh, ahh, aaaaaaaaaaaah! I, I, I’m cumming-!!!」
 
 As soon as Yuu saw Kazumi arching her body back, he pulled out his penis with a sticky pop.
 
@@ -517,7 +519,7 @@ As he inserted his middle finger deep into her vagina and moved it around, _sque
 
 「If I move it any more than this, what will happen, I wonder?」
 
-「You meanie… Hnn---! Ahn, ahn! N… Nooo…」
+「You meanie… Hnn-! Ahn, ahn! N… Nooo…」
 
 While Yuu was teasing Sayaka, Riko, who couldn’t hold herself back any longer, was trying to get on top of him.
 
@@ -683,7 +685,7 @@ If anything, as far as Yuu was concerned, not only did he have Eimi, who suddenl
 
 As such, from the very beginning, Yuu shook his hips in large strokes as he attacked Eimi.
 
-「Hyaan! Y, Yuu-kun! Ahn, ahn! Amazing, it is so amazing… Hahii, hahii… I, I, I am going to cum, so… if you go that hard… Ahn! Noo, cumming… Ahh, hii! I, I am cumminggggg---!!!」
+「Hyaan! Y, Yuu-kun! Ahn, ahn! Amazing, it is so amazing… Hahii, hahii… I, I, I am going to cum, so… if you go that hard… Ahn! Noo, cumming… Ahh, hii! I, I am cumminggggg-!!!」
 
 「Hahaha, so you came already. But we’re just getting started, you know?」
 
@@ -953,7 +955,7 @@ Yuu swept Miku’s long hair to her back, gradually moved up as he kissed her ne
 
 After gently stroking the ear with his upper and lower lips as if he was going to eat it, he licked the area around it using his lips and tongue.
 
-「Kuh… Nghh---, hnn---」
+「Kuh… Nghh-, hnn-」
 
 Holding Miku’s body, which was trembling slightly as she let out a stifled cry, with one arm, he stopped her face with his other hand as she tried to escape.
 
@@ -1095,7 +1097,7 @@ However, thinking about it the other way around, he would like to bring his face
 
 Not just a little bit, Miku seemed to be steeped fairly deep in her fetish.
 
-「Mu, haa-. So this is… the smell of a boy’s dick… Suu, haa, suu, haa. Nghh---… Smelling such a thick male scent, I might end up getting addicted to it.」
+「Mu, haa-. So this is… the smell of a boy’s dick… Suu, haa, suu, haa. Nghh-… Smelling such a thick male scent, I might end up getting addicted to it.」
 
 「T, that’s… good for you, I guess.」
 
@@ -1313,7 +1315,7 @@ Leaning over Miku, Yuu buried his face in her moist, sweat-soaked neck as he pok
 
 As a matter of fact, as he got clamped down by her tight vagina, which was unique to virgins, Yuu’s own pleasure had also gone up fairly high, and he was close to reaching his limit.
 
-「Ahn, ahn, ahn-! No, that’s… too intense… cumming, cumming… Aahn! No more… I’m cumming… C, c, cumming---!!!」
+「Ahn, ahn, ahn-! No, that’s… too intense… cumming, cumming… Aahn! No more… I’m cumming… C, c, cumming-!!!」
 
 Just as Miku, who squeezed his hands so tightly that fingernail marks were left behind on them, was about to reach climax, the folds of her vagina contracted and tightened as if trying to squeeze the sperm out of the penis that was buried deep inside her.
 
@@ -1572,6 +1574,8 @@ _Chuupa, chuupa_ After exchanging kisses, Miku started shaking her hips.
 _Jiggle jiggle_ Ending up getting drawn to her breasts, which swayed wildly each time she did, he let go one of her hands, and then grabbed and fondled it, scooping it up from under her.
 
 Eventually, as Yuu himself began to move and thrust his hips upward, Miku’s coquettish cry grew higher and higher in intensity.
+
+---
 
 ---
 
@@ -2189,7 +2193,7 @@ When Sera moved away from her front, the scene of Yuu getting tied up on the bed
 
 Position-wise, she was looking at him from diagonally behind him, but since the room was no larger than six tatami mats, it seemed that she could immediately tell that he was almost completely nude.
 
-「Muu, guu! Hee, aaah, nghh, nghh---!!」
+「Muu, guu! Hee, aaah, nghh, nghh-!!」
 
 A complete change from her coquettish moaning from earlier, she seemed to be desperately trying to say something.
 
@@ -2483,7 +2487,7 @@ No longer able to move, Sera was moaning as she clung to Yuu, letting out sensel
 
 There, after enduring for a long time, Yuu finally reached ejaculation tonight.
 
-「Hyaan, aaaaaaaaaaaah… Ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn… Hnnn---, unyuun.」
+「Hyaan, aaaaaaaaaaaah… Ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn… Hnnn-, unyuun.」
 
 While Yuu continued to ejaculate, Sera let out a long coquettish cry to the limit, and after her body jerked and quivered over and over again, she went limp, drained of strength.
 
@@ -2835,7 +2839,7 @@ Yuu nodded his head and penetrated Elena without hesitation.
 
 「Haan, ahn, aahn! E, Elena, your tongue is going in there! Hnn, hiii!」
 
-「Amm… Lick, lick, slurp… Ahn! Nmm, nmm---, ahnn!」
+「Amm… Lick, lick, slurp… Ahn! Nmm, nmm-, ahnn!」
 
 「Oh, ooh… this feels pretty… nghh! good, big sis.」
 
@@ -2893,7 +2897,7 @@ From her shapely buttocks to her slim, tight waist. From her splendidly curvy ba
 
 As Elena continued to passionately give her cunnilingus even while letting out a muffled gasp, Sera seemed to have finally reached her limit
 
-「Ahh, hii… C, cumming---!!!」
+「Ahh, hii… C, cumming-!!!」
 
 The moment she stretched her legs straight and arched her body back, he could see her long platinum-blonde hair sway to the back and her beautiful breasts jiggle.
 
