@@ -53,7 +53,7 @@ He could tell that she was wearing no bra on top, and on the bottom, she must be
 
 As she stood there smiling with her long platinum blonde hair swaying the air, her appearance alone was as lovely as an angel, but inside she was a little devil.
 
-「Yuu, you see…」
+"Yuu, you see…"
 
 Moving closer to him, Sera whispered in a small voice so that Elena, who was in the bathroom, would not hear.
 
@@ -61,43 +61,43 @@ A very nice scent of shampoo and soap wafted over from Sera, who was leaning ver
 
 Upon hearing what Sera suggested, Yuu thought for a moment.
 
-「Hmm… Well, tonight is your farewell party, after all. If you want to do that, I don’t mind cooperating, I guess.」
+"Hmm… Well, tonight is your farewell party, after all. If you want to do that, I don’t mind cooperating, I guess."
 
-「Really?! That’s great. Elena will probably be surprised, but I’m sure she will be delighted by it. Ehehe.」
+"Really?! That’s great. Elena will probably be surprised, but I’m sure she will be delighted by it. Ehehe."
 
-「If that’s the case, that would be nice.」
+"If that’s the case, that would be nice."
 
-「Then, I’ll get everything ready, so… Come over as soon as Elena gets out of the bath and enters the room, okay?」
+"Then, I’ll get everything ready, so… Come over as soon as Elena gets out of the bath and enters the room, okay?"
 
-「Got it.」
+"Got it."
 
 Waving her hand with a wide smile on her face, Sera entered his elder sister’s room.
 
 If you looked at that part only, it was very charming.
 
-「Big sis Sera sure knows a lot of things, doesn’t she?」
+"Big sis Sera sure knows a lot of things, doesn’t she?"
 
 The Yuu of that time simply thought about it in a carefree manner.
 
 ## 12345
 
-「I’m done!」
+"I’m done!"
 
 Perhaps feeling very ill at ease, Elena came out of the bathroom with her hair still wet.
 
-「Got it. I’m coming.」
+"Got it. I’m coming."
 
-「Okay-」
+"Okay-"
 
 Heaving out a sigh of relief when she heard Yuu and Sera’s voices coming from separate rooms, Elena entered the room with only a bath towel wrapped around her naked body.
 
 Soon after, she could hear the sound of the door getting opened and Yuu coming in after her.
 
-「Huh, why is the room so dark? Sera?」
+"Huh, why is the room so dark? Sera?"
 
 As soon as she opened the door, Elena noticed that only the orange nightlight was on.
 
-「Big sis, I’m sorry.」
+"Big sis, I’m sorry."
 
 As she heard Yuu’s voice coming from right behind her, she got both of her arms grabbed by him.
 
@@ -111,9 +111,9 @@ Moreover, when she looked down at Sera’s feet, she saw that the zipper of the 
 
 ## 12345
 
-「Kuuuuh… N, noo, this is just… Hey, Sera, untie me already!」
+"Kuuuuh… N, noo, this is just… Hey, Sera, untie me already!"
 
-「Fufufu. It came out better than I expected. It would be a waste to untie it. Come on, why don’t you take a look for yourself?」
+"Fufufu. It came out better than I expected. It would be a waste to untie it. Come on, why don’t you take a look for yourself?"
 
 Sera, who had been looking carefully from the neck to the crotch, brought Elena in front of the lengthy mirror she was using as a full body mirror.
 
@@ -131,11 +131,11 @@ It was done while looking at a guide with pictures, but it took about 20 minutes
 
 She was not so much as being familiar with it, it didn’t seem to be her first time doing it. Perhaps she had done this several times before in her hometown.
 
-「What do you think, Yuu?」
+"What do you think, Yuu?"
 
 Asked by Sera, Yuu looked at every nook and cranny of his elder sister’s bound figure from all directions.
 
-Elena had been saying 「Noo, noo.」 since a while go, but as she looked at her own reflection in the mirror and was stared at by Sera and Yuu, her cheeks appeared to be turning redder and redder.
+Elena had been saying "Noo, noo." since a while go, but as she looked at her own reflection in the mirror and was stared at by Sera and Yuu, her cheeks appeared to be turning redder and redder.
 
 Rather, even when she got her movements restrained by Yuu and started to get her body bound with a rope by Sera, she didn’t really put up any serious resistance.
 
@@ -147,21 +147,21 @@ When in the world did she notice such a thing?
 
 It seemed that last Sunday, when Yuu came home late, the two had taken a bath together, but…
 
-「Yuu… No… Stop staring at me so closely…」
+"Yuu… No… Stop staring at me so closely…"
 
 When Yuu stared fixedly at her, Elena turned her head down and looked embarrassed, which was unusual.
 
-「What are you talking about? Big sis, you look good in it.」
+"What are you talking about? Big sis, you look good in it."
 
-「N, no way… Hnn, ahn.」
+"N, no way… Hnn, ahn."
 
 It seemed that Sera, who moved around to her back, had pulled a part of the rope on the back.
 
 As the crotch rope tightened, a coquettish cry escaped from Elena’s mouth.
 
-「Kufufu. But this isn’t the end of it, you know?」
+"Kufufu. But this isn’t the end of it, you know?"
 
-「Huh… No… way…」
+"Huh… No… way…"
 
 Sera showed a devilish smile.
 
@@ -179,7 +179,7 @@ At Sera’s suggestion, Yuu tried to pull on the rope to test it out, and he cou
 
 Furthermore, she had her mouth sealed with a ball gag, and her eyes with a black eye mask.
 
-At this point, Elena could only groan 「Muu, muu」, so they couldn’t understand what she was saying.
+At this point, Elena could only groan "Muu, muu", so they couldn’t understand what she was saying.
 
 With her long, now completely dry hair swaying wildly, she was showing nothing but twisting and squirming movements.
 
@@ -189,7 +189,7 @@ The center of her spread wide legs. He could see that the two ropes that were di
 
 Then Sera lightly touched the crotch of the shorts he was wearing as pajamas.
 
-「Oh my, good for you, Elena. Looking at your figure makes Yuu’s dick grow big, you know?」
+"Oh my, good for you, Elena. Looking at your figure makes Yuu’s dick grow big, you know?"
 
 As he looked at Elena’s restrained figure, on top of that her moistened crotch, he had become rock hard before he knew it.
 
@@ -197,21 +197,21 @@ It seemed that seeing the appearance of his elder sister that was different from
 
 Elena’s cheeks flushed red when she heard Sera’s words.
 
-「From here on the two of us will take care of you together, Elena. Ufufu. Look forward to it, okay?」
+"From here on the two of us will take care of you together, Elena. Ufufu. Look forward to it, okay?"
 
 Sera turned around and rummaged through her Boston bag.
 
 Elena, whose vision and mouth were blocked, was huffing and puffing, her cheeks tinted pink.
 
-「Ta-da!」
+"Ta-da!"
 
 What Sera proudly held up in her hand was a pitch-black cylindrical object with a flattened end.
 
 It looked like a spatula used for baking cakes, but the flat part was larger.
 
-「What is that?」
+"What is that?"
 
-「You see, this is something called Spanking Racket.」
+"You see, this is something called Spanking Racket."
 
 As she said this, Sera moved around to Elena’s rear.
 
@@ -219,13 +219,13 @@ Spanking… it’s a word I’ve heard before; While Yuu was having such a thoug
 
 Smack!
 
-「MugiiI!」
+"MugiiI!"
 
-「Whoa!」
+"Whoa!"
 
 When Yuu also went behind her, he saw the area where she was hit had beautifully turned red.
 
-「D, does it not hurt?」
+"D, does it not hurt?"
 
 Even if his elder sister had M disposition, Yuu, who was not knowledgeable about that field, couldn’t help but get a little worried.
 
@@ -233,15 +233,15 @@ However, Sera was indifferent.
 
 She whispered in a quiet voice so that only Yuu could hear.
 
-「This one, you see, despite the loud sound it makes, it doesn’t hurt that much. Spanking can be done by hand too, but it is difficult to control the amount of strength, you see. In other words, it’s an item designed for SM beginners.」
+"This one, you see, despite the loud sound it makes, it doesn’t hurt that much. Spanking can be done by hand too, but it is difficult to control the amount of strength, you see. In other words, it’s an item designed for SM beginners."
 
-「I, I see…」
+"I, I see…"
 
-「That’s just how it… is!」
+"That’s just how it… is!"
 
 Smack!
 
-「Nghh!」
+"Nghh!"
 
 Once again, Sera swung the Spanking Racket and smacked the other side of Elena’s buttocks.
 
@@ -253,19 +253,19 @@ Midway through, Yuu noticed something.
 
 True enough, despite the loud sound it made, Elene didn’t seem to be in much pain. If anything, didn’t she seem delighted by it?
 
-「Take this, and this, you perverted, lewd woman! Are you getting aroused from being spanked?」
+"Take this, and this, you perverted, lewd woman! Are you getting aroused from being spanked?"
 
-「Ahh, nghh!」
+"Ahh, nghh!"
 
-「Phew. Do you want to give it a try, Yuu? The key is to spank her while cursing her.」
+"Phew. Do you want to give it a try, Yuu? The key is to spank her while cursing her."
 
-「Nn…」
+"Nn…"
 
 Yuu took the Spanking Racket.
 
 Now Elena’s small buttocks were bright red.
 
-「Elena, this time you’re going to get spanked by Yuu, you know?」
+"Elena, this time you’re going to get spanked by Yuu, you know?"
 
 When Sera spoke to her, Elena shook her head as if she didn’t want it, but the glimpse of her cheeks showed that they were flushed.
 
@@ -275,35 +275,35 @@ Elena’s slender and beautiful backside was exposed defenselessly, and she had 
 
 Sadistic desire for his elder sister rapidly welled up inside Yuu.
 
-「Heeh, you want to get spanked by your little brother so badly? You acute brocon.」
+"Heeh, you want to get spanked by your little brother so badly? You acute brocon."
 
 Smack!
 
-「Nghh, hnn!」
+"Nghh, hnn!"
 
 In exchange for not using too large of a swing, Yuu spanked her while making sure that the flat part hit her perfectly.
 
 The moment she got spanked, Elena arched her back as far as she could.
 
-「You peep-loving masturbation addict!」
+"You peep-loving masturbation addict!"
 
 Smack!!
 
-「Hii, hiin!」
+"Hii, hiin!"
 
-「For you to want me to spray my semen all over you, or do you want to become a cumpdump or something?」
+"For you to want me to spray my semen all over you, or do you want to become a cumpdump or something?"
 
 Smack!!!
 
-「Muu, hoo!」
+"Muu, hoo!"
 
 Finding Elena’s reaction each time she got spanked amusing, Yuu started to enjoy it, too.
 
-「Wow, Yuu, so amazing! The same goes for your verbal abuse, but you’re pretty talented in this, aren’t you?」
+"Wow, Yuu, so amazing! The same goes for your verbal abuse, but you’re pretty talented in this, aren’t you?"
 
-「Ahaha. I got carried away unknowingly.」
+"Ahaha. I got carried away unknowingly."
 
-「Spanking is fine and all, but this is a rare chance, so I’d like to try a lot of different things today. This time…」
+"Spanking is fine and all, but this is a rare chance, so I’d like to try a lot of different things today. This time…"
 
 Once again, Sera rummaged through her large bag.
 
@@ -329,15 +329,15 @@ They had come this far, so he understood without needing her to tell him.
 
 Sera approached Elena, who was still restrained, and touched her collarbone with the tip of the feather duster in her hand.
 
-「Nghh, hiin!」
+"Nghh, hiin!"
 
 Perhaps startled by the sudden touch, Elena’s slender body jumped.
 
-「I thought I’d try something different this time. What do you think? This kind of thing, I mean.」
+"I thought I’d try something different this time. What do you think? This kind of thing, I mean."
 
 Sera did not continue to touch the same spot, but instead, with a slight pause, she traced the feather duster to the neck, shoulders, and chest.
 
-「Muu-, muu-! Nghh… Muu, hii!」
+"Muu-, muu-! Nghh… Muu, hii!"
 
 Elena shook her head, trying to make some kind of appeal, but it didn’t get through to Sera.
 
@@ -349,7 +349,7 @@ However, with her vision blocked, she was unable to react as she suddenly got tr
 
 Every time Sera traced her, Elena’s body shook in an amusing way.
 
-「Nghh… Hnna… Mmph… Mmmph… Hii, hiin!」
+"Nghh… Hnna… Mmph… Mmmph… Hii, hiin!"
 
 When the tip of the feather traced her nipple, the reaction was remarkable.
 
@@ -371,11 +371,11 @@ Come to think of it, big sis is super weak on her sides, isn’t she?
 
 He recalled the fact that although it was pretty hard to wake up his elder sister in the morning, tickling her armpits worked wonders.
 
-「Nghh, hii, hii! Hii, ah! Ahheeeee… Nghh, hnn!」
+"Nghh, hii, hii! Hii, ah! Ahheeeee… Nghh, hnn!"
 
 Elena, who got caressed in the armpit as soon as Yuu recalled that, twisted her body and let out a cry as hard as she could.
 
-「Oh my… So you’re weak here, Elena. Hey, have you heard? The talk that the area that is sensitive when tickled is also your erogenous zone.」
+"Oh my… So you’re weak here, Elena. Hey, have you heard? The talk that the area that is sensitive when tickled is also your erogenous zone."
 
 Pausing for a moment, Sera whispered in Elena’s ear.
 
@@ -387,7 +387,7 @@ As he moved closer, a thought occurred to Yuu: this is a rare chance, so let’s
 
 Lowering his body, he brought his face close to the side opposite to the one Sera was tracing with her finger and licked it up.
 
-「Hnn, hnn?!」
+"Hnn, hnn?!"
 
 Elena’s reaction was remarkable in a different way than before.
 
@@ -405,39 +405,39 @@ Yuu put the remote control in the pocket of his shorts and brought the main body
 
 He touched the area farthest from the nipple with the tip in a circular motion.
 
-「Nghh… Nghh, ah…」
+"Nghh… Nghh, ah…"
 
 She was trembling a little, but it seemed that the stimulation was still too weak.
 
 Gradually, the circular motion became smaller and smaller, and eventually he touched the nipple.
 
-「Muu, hnnahn! Hii, hiin!」
+"Muu, hnnahn! Hii, hiin!"
 
 Elena’s chin jerked up.
 
-「Nghh, nghh, nghh, nghhhhh… Hnn! Ohh!」
+"Nghh, nghh, nghh, nghhhhh… Hnn! Ohh!"
 
 He kneaded her nipple around with the tip of the rotor.
 
 Elena raised her face so much that she was looking up at the ceiling, but after a moment she plopped down limply.
 
-「Oh my, oh my.」
+"Oh my, oh my."
 
 Sera’s hand went down and her icefish-like fingertips traced her crotch.
 
 When Yuu looked down too, he saw that the ropes wrapping around her crotch were wetter than before as they dug into her, soaking wet even the area around it, including her pubic hair.
 
-「Kufufu. You came just from your nipples, didn’t you? The you who feel it more than I thought you would is so cute-, Elena.」
+"Kufufu. You came just from your nipples, didn’t you? The you who feel it more than I thought you would is so cute-, Elena."
 
-「Muu…」
+"Muu…"
 
 As if to deny it, Elena shook her head, making her bright brown hair sway around.
 
 While fixing her messy hair, Yuu whispered in her ear, too.
 
-「The you who feel it more than usual is so erotic, which is nice, big sis. It makes me want to make you feel it even more.」
+"The you who feel it more than usual is so erotic, which is nice, big sis. It makes me want to make you feel it even more."
 
-「You’re right!」
+"You’re right!"
 
 Yuu and Sera smiled at each other, and Elena, hearing this, let out an inexpressible sigh.
 
@@ -445,7 +445,7 @@ However, looking at the fact that her nipple, was still being caressed by Yuu wi
 
 ## 12345
 
-「Which- one- should- I- use- I- wonder-… Alright, I choose you!」
+"Which- one- should- I- use- I- wonder-… Alright, I choose you!"
 
 God knew when it had ended up being found out by Sera too, but she took out a box from under the bed containing three vibrators, named Yuuchin No.1 through No. 3.
 
@@ -463,15 +463,15 @@ She might have come when she twitched and quivered while lifting her chin and mo
 
 Sera, who moved closer in silence, bent down in front of Elena’s crotch with the pink vibrator in her hand.
 
-「If you do this to this part here…」
+"If you do this to this part here…"
 
 When Yuu, who was also curious, paused his caressing and peeked into it, he saw her trying to make an opening by pulling the two ropes running between Elena’s legs to the sides.
 
-「Nufufu. Dear me, Elena, you’ve become so wet. Come and give it a touch, too, Yuu.」
+"Nufufu. Dear me, Elena, you’ve become so wet. Come and give it a touch, too, Yuu."
 
-「Hoh, let me see…」
+"Hoh, let me see…"
 
-「Muu… Hnn, nghhii!」
+"Muu… Hnn, nghhii!"
 
 Elena desperately tried to move her body, but since she was bound tightly with her legs spread wide open, it only amounted to movements that aroused one’s lust instead.
 
@@ -481,13 +481,13 @@ As soon as Yuu and Sera’s fingers touched Elena’s vaginal opening, a squelch
 
 Their fingers were easily swallowed up to the second joint, and when they moved them inside, juice that was a little more muddy and frothy than clear leaked out in streams.
 
-「Then, here we go.」
+"Then, here we go."
 
 When Sera put the tip of the vibrator to the vaginal opening, it was swallowed very easily with a squelch.
 
 Just like that, it was inserted deep into her vagina.
 
-「Nghh, huh?! Muguu! Nghhh… Nghh, ahh, hnn!」
+"Nghh, huh?! Muguu! Nghhh… Nghh, ahh, hnn!"
 
 Given that it used to be one of her favorites, she must have had an idea what had been put inside her.
 
@@ -499,41 +499,41 @@ When Sera signaled to him with her eyes, Yuu pulled on the crotch rope through t
 
 As he did, the knot hit her exactly at the clitoris, which was swirling with blood and swollen.
 
-「Muu, ahhh… Nghh… Hii, hiin!」
+"Muu, ahhh… Nghh… Hii, hiin!"
 
 Almost at the same time as Elena arched her body back as far as she could, the vibrator reached the deepest part of her vagina.
 
-「Big sis, did you come again? You sure are sensitive and coming so easily tonight, aren’t you?」
+"Big sis, did you come again? You sure are sensitive and coming so easily tonight, aren’t you?"
 
 Seemingly unable to even hear Yuu’s words, Elena was moaning and shaking her hair single-mindedly.
 
 However, Sera’s attack was not over just yet.
 
-「Now then, switch on!」
+"Now then, switch on!"
 
 With a click, the vibrator at the very bottom of the machine was switched on.
 
 Elena’s moaning made it hard to hear, but _buzz, buzz_ they could hear the sound of something moving.
 
-「Is it moving inside?」
+"Is it moving inside?"
 
 Yuu stroked Elena’s lower abdomen with his palm.
 
-「Yup. It moves and stirs around your vagina. I’ve also used vibrators before, but unlike humans, they stay in motion until you turn them off, you see. The advantage is that you can use it until you cum. But if you get too used to it, you might end up becoming frustrated when you eventually have sex with a boy because you can’t get enough stimulation.」
+"Yup. It moves and stirs around your vagina. I’ve also used vibrators before, but unlike humans, they stay in motion until you turn them off, you see. The advantage is that you can use it until you cum. But if you get too used to it, you might end up becoming frustrated when you eventually have sex with a boy because you can’t get enough stimulation."
 
-「Ah, I see.」
+"Ah, I see."
 
 Even for men, it was said if a virgin became too engrossed in masturbating with an onahole, he might not fare well when he eventually had sex for real.
 
 To begin with, he believed there were not many opportunities for middle or high school boys who would get obsessed with masturbation to end up having sex with girls in his former world.
 
-「Though, you see… You alone are an exception, Yuu.」
+"Though, you see… You alone are an exception, Yuu."
 
 Sera hugged Yuu from behind as he stood up and looked at the figure of his elder sister.
 
-「Once you get a taste of this dick, you won’t be satisfied with a vibrator anymore, after all…」
+"Once you get a taste of this dick, you won’t be satisfied with a vibrator anymore, after all…"
 
-「Big sis Sera…」
+"Big sis Sera…"
 
 Sera’s hand reached down from around Yuu’s stomach and gently stroked his bulging crotch.
 
@@ -543,39 +543,39 @@ With his eyes glued to Elena, who was moaning intermittently with the vibrator s
 
 # Chapter 90 - Farewell Party (2) -Make it slow XXX (I want you)-
 
-「Take that!」
+"Take that!"
 
-「Whoa!」
+"Whoa!"
 
 The jersey fabric shorts that Yuu was wearing instead of pajamas were speedily taken off along with his trunks type underpants.
 
-「Ohoo.」
+"Ohoo."
 
-「Geez, big sis Sera…」
+"Geez, big sis Sera…"
 
-「Okay, now say banzai.」
+"Okay, now say banzai."
 
-「B, banzai?」
+"B, banzai?"
 
 The corners of Sera’s eyes dropped as she looked down from behind Yuu at the meat rod that was towering so high that it was hitting his lower abdomen, but her hands did not stop, and this time the T-shirt was rolled up and slid off his head in one go as he raised both of his hands.
 
-「Yes, stay like that, stay like that-」
+"Yes, stay like that, stay like that-"
 
-「Huh… wait a sec?」
+"Huh… wait a sec?"
 
 As soon as he got his outstretched arms, which still had the pajamas stuck on them, pulled behind him, he suddenly noticed that something was bound around them from the elbows.
 
-「Big sis Sera?」
+"Big sis Sera?"
 
-「It’s fine, it’s fine.」
+"It’s fine, it’s fine."
 
 When he turned and looked at Sera as he was being pulled, she winked at him and whispered in a quiet voice.
 
-「Just once is fine, but I’ve always wanted to try tying you up, Yuu. It’s not like I’m going to tie you up for real, anyway. It’s just a play tying, so it should be fine, right?」
+"Just once is fine, but I’ve always wanted to try tying you up, Yuu. It’s not like I’m going to tie you up for real, anyway. It’s just a play tying, so it should be fine, right?"
 
-「Haa… What are you going to do after binding me?」
+"Haa… What are you going to do after binding me?"
 
-「Sheesh, I’m sure you know it already.」
+"Sheesh, I’m sure you know it already."
 
 Moving around to the front, Sera hugged Yuu and rubbed her cheeks against his exposed chest.
 
@@ -583,19 +583,19 @@ For his part, Yuu had a feeling that it would not do him any good, but he had pl
 
 In that case, he lightly thought it should be fine even if he let Sera, who was experienced, do whatever she wanted.
 
-「Just be sure to spare me from pain, okay?」
+"Just be sure to spare me from pain, okay?"
 
-「I won’t make you feel any pain. Rather, I’m going to make you feel good-! Hoi!」
+"I won’t make you feel any pain. Rather, I’m going to make you feel good-! Hoi!"
 
-「Whoa!」
+"Whoa!"
 
 Sera pushed him toward the bed.
 
 If he had fallen as he was, he would have hit his head on the wall, but since Sera had skillfully adjusted the direction of hiss, it ended up with him getting pushed down onto the bed at an angle.
 
-「Aah, big sis Sera, go easy on me, okay?」
+"Aah, big sis Sera, go easy on me, okay?"
 
-「Dehehe, slurp.」
+"Dehehe, slurp."
 
 It was unclear whether or not Yuu’s words reached her, but Sera, with a happy expression on her face, first tied his outstretched hands to the ropes extending from both sides.
 
@@ -619,7 +619,7 @@ When Sera moved away from her front, the scene of Yuu getting tied up on the bed
 
 Position-wise, she was looking at him from diagonally behind him, but since the room was no larger than six tatami mats, it seemed that she could immediately tell that he was almost completely nude.
 
-「Muu, guu! Hee, aaah, nghh, nghh-!!」
+"Muu, guu! Hee, aaah, nghh, nghh-!!"
 
 A complete change from her coquettish moaning from earlier, she seemed to be desperately trying to say something.
 
@@ -627,21 +627,21 @@ However, getting on the bed without paying her any mind, Sera stuck her body clo
 
 As for why she chose that side, it was probably so that Elena could see how Yuu was doing.
 
-「Ufufu. Let’s have fun with just the two of us this time. You dick has been hard this whole time, so it must’ve been tough, no?」
+"Ufufu. Let’s have fun with just the two of us this time. You dick has been hard this whole time, so it must’ve been tough, no?"
 
-「Ah… Haa…」
+"Ah… Haa…"
 
 Sera poked the glans with her fingertip.
 
 Seeing that clear juice was sticking on her finger, she licked it off without hesitation, then slowly stroked the surface with a smile on her face.
 
-「Do you want to cum?」
+"Do you want to cum?"
 
-「Y…yes.」
+"Y…yes."
 
 She was only giving him soft touches, but as he got stimulated in this way, his pleasure went up.
 
-「But you’re not allowed to cum yet. If I miss my chance tonight, I don’t know when I’ll be able to see you again, so I’m going to enjoy myself to my heart’s content with you, Yuu.」
+"But you’re not allowed to cum yet. If I miss my chance tonight, I don’t know when I’ll be able to see you again, so I’m going to enjoy myself to my heart’s content with you, Yuu."
 
 Saying so, Sera brought her face close to Yuu’s.
 
@@ -649,9 +649,9 @@ At this moment, Yuu felt a little regret, thinking that he had made a mistake in
 
 Sera, who opened her mouth like a crescent moon, stretched out her red tongue and licked Yuu’s lips, and then pried his teeth open and invaded his mouth as she was.
 
-「Ohh, ahh…」
+"Ohh, ahh…"
 
-「Hnn… Nghh… nmm. 」
+"Hnn… Nghh… nmm. "
 
 The tongue, which made its way in while licking the palate, reached the back of his throat, and then stickily pressed down on Yuu’s tongue.
 
@@ -669,17 +669,17 @@ Who knew how long they had been enjoying each other’s mouths.
 
 Even after separating her lips, Sera continued to stick her tongue out, and a string of saliva could be seen stretching down from it, and as it got affected by gravity, it fell into Yuu’s mouth, which was still left open.
 
-「Kufufu. Yuu, you’re so cute. So cute that I want to eat you up.」
+"Kufufu. Yuu, you’re so cute. So cute that I want to eat you up."
 
-「B, big sis Sera… Nmm.」
+"B, big sis Sera… Nmm."
 
 As if chasing the falling saliva, Sera pressed her lips against Yuu’s with her mouth open as if she was eating them, and this time she proceeded to drop her lips on his chin, cheeks, nose tip, forehead, and other parts of his face and sucked on them.
 
 Not only did he get his vision blocked by Sera’s long platinum blonde hair hanging over him, he was unable to move, so Yuu truly felt as if he was being preyed upon.
 
-「Nghh… Aah… Nghh!」
+"Nghh… Aah… Nghh!"
 
-「Nmm… so tasty… your body… is so tasty… Ahn, nghh.」
+"Nmm… so tasty… your body… is so tasty… Ahn, nghh."
 
 He felt a tingling electrifying sensation as her tongue crawled around his ear, sucked the earlobe into her mouth, and stuffed her tongue into the hole.
 
@@ -695,7 +695,7 @@ On top of that, the surface of her body was in contact with Yuu as she wiggled a
 
 Thanks to this, the bubbling pleasure inside Yuu seemed to be slowly spreading throughout his body.
 
-「Hii, ahh! Ahh, ahh, big sis… Se… ra… Hnn, kuh!」
+"Hii, ahh! Ahh, ahh, big sis… Se… ra… Hnn, kuh!"
 
 Moving from his shoulder and collarbone to his chest, Sera’s mouth licked and sucked on Yuu’s nipples.
 
@@ -703,11 +703,11 @@ This made Yuu let out moan-like cries uncontrollably.
 
 Moreover, her right hand had moved back to the tip of his penis and was playing with the glans with three fingertips.
 
-「I knew it, boys also are sensitive here, aren’t they? Nufufu.」
+"I knew it, boys also are sensitive here, aren’t they? Nufufu."
 
-「Ah… Ah… I guess, so.」
+"Ah… Ah… I guess, so."
 
-「I’m going to caress you even more, Yuu.」
+"I’m going to caress you even more, Yuu."
 
 Simultaneous attack with the fingers of her left hand and her tongue. On top of that, she also attacked his penis with glans-pinching movements.
 
@@ -715,27 +715,27 @@ Unconsciously, Yuu’s own body began to jerk and wiggle around.
 
 Even the touch of her soft and silky hair on his chest and sides was turning into pleasure.
 
-「B, big sis Sera!」
+"B, big sis Sera!"
 
-「Does it feel good?」
+"Does it feel good?"
 
-「Y, yes. It feels good…」
+"Y, yes. It feels good…"
 
-「Do you want to cum?」
+"Do you want to cum?"
 
-「Y, yes, I want to come…」
+"Y, yes, I want to come…"
 
-「Ufufu. But you can’t cum yet.」
+"Ufufu. But you can’t cum yet."
 
-「Eeh…」
+"Eeh…"
 
 Sera, who stared at Yuu’s face up close as he said so with a miserable expression as if enjoying herself, stroked his head lovingly, and then kissed him with a smooch.
 
 As they poked each other with the tip of their tongues, Sera said…
 
-「This time, I want you to lick me, too, Yuu.」
+"This time, I want you to lick me, too, Yuu."
 
-「Nmm… I’ll lick yours too, big sis Sera…」
+"Nmm… I’ll lick yours too, big sis Sera…"
 
 Sera, who turned to the opposite direction as she got on top of Yuu, pressed her buttocks against his face.
 
@@ -757,19 +757,19 @@ It seemed that Sera was also getting pretty aroused while caressing Yuu.
 
 The more he licked, the more nectar overflowed.
 
-「Haan, hnn! Ahnn… you’re… v, very good at it… I knew it, just as I expected you to be… you’re sexually aggressive, Yuu… and it makes me happy… Ahaan.」
+"Haan, hnn! Ahnn… you’re… v, very good at it… I knew it, just as I expected you to be… you’re sexually aggressive, Yuu… and it makes me happy… Ahaan."
 
-「Fufufu, as for me, I had never met a girl as lewd as you, so I was pretty surprised, though.」
+"Fufufu, as for me, I had never met a girl as lewd as you, so I was pretty surprised, though."
 
-「Amm, chuu… chuu, chuupa… Aah, I’m so glad that… I have a little brother who would accept me like you, Yuu, aaaaahn!」
+"Amm, chuu… chuu, chuupa… Aah, I’m so glad that… I have a little brother who would accept me like you, Yuu, aaaaahn!"
 
 Pressing his face against her secret place without paying attention to the fact that his face was getting wet with her love juices, Yuu stretched his tongue into her vagina as far as he could and then moved it around, gouging her inside.
 
 Even while letting out a moan, Sera refused to be outdone, and started to lick his penis all over starting with the glans.
 
-「Ahaan, soup is coming out… from your dick. Amm… lick, lick, chuupa… so tasty. Hnn, ahn, hyaan! I, I’m being sucked! Ah… Haa… it feels so good!」
+"Ahaan, soup is coming out… from your dick. Amm… lick, lick, chuupa… so tasty. Hnn, ahn, hyaan! I, I’m being sucked! Ah… Haa… it feels so good!"
 
-「Kuha, I feel so good too… Hnn… Ahhh!」
+"Kuha, I feel so good too… Hnn… Ahhh!"
 
 He felt the entire glans being swallowed.
 
@@ -781,19 +781,19 @@ Just when it seemed that both of them were about to reach their limits, Sera rai
 
 This time, as they got into the cowgirl position, she smiled mischievously at Yuu.
 
-「Nufufu. Did you want to cum, Yuu?」
+"Nufufu. Did you want to cum, Yuu?"
 
-「Y, yeah. Even though I was so close to…」
+"Y, yeah. Even though I was so close to…"
 
 If he had been able to use his hands, he probably would have grabbed her buttocks and continued the 69 until one of them came.
 
-「If you’re going to cum, do it inside me. I mean, I’ve only had you cum inside me once, after all.」
+"If you’re going to cum, do it inside me. I mean, I’ve only had you cum inside me once, after all."
 
-「Aah. Come to think of it…」
+"Aah. Come to think of it…"
 
 As Sera said this, she straddled Yuu’s lower abdomen and rubbed her crotch against his penis, which was still hard.
 
-「I want you… to pour a lot of it… inside of me.」
+"I want you… to pour a lot of it… inside of me."
 
 Sera gradually lowered her upper body and came closer to Yuu.
 
@@ -805,41 +805,41 @@ They were rubbing their genitals very closely against each other, maintaining th
 
 When Sera brought her face so close to him that he could feel her breaths, Yuu couldn’t resist saying to her.
 
-「Ah… Haa… I want to put it in… I want to put it in! Inside of you, big sis Sera… q, quickly!」
+"Ah… Haa… I want to put it in… I want to put it in! Inside of you, big sis Sera… q, quickly!"
 
-「Ahaan, I love the look on your face just now, Yuu. I love it… say it one more time. If you don’t, I won’t let you put it in.」
+"Ahaan, I love the look on your face just now, Yuu. I love it… say it one more time. If you don’t, I won’t let you put it in."
 
 Sera did her final teasing at such a close distance that their lips were almost touching.
 
-「Kuh… I want to insert my dick in your tight pussy… and be connected with you at your deepest part, big sis Sera! And then… I want to cum as hard as I can!」
+"Kuh… I want to insert my dick in your tight pussy… and be connected with you at your deepest part, big sis Sera! And then… I want to cum as hard as I can!"
 
-「What will happen… when you cum?」
+"What will happen… when you cum?"
 
-「I’ll impregnate you, big sis Sera… my half-blood elder sister with my semen.」
+"I’ll impregnate you, big sis Sera… my half-blood elder sister with my semen."
 
-「Ufufu. Yes… I’m going to get impregnated… by my beloved little brother, Yuu.」
+"Ufufu. Yes… I’m going to get impregnated… by my beloved little brother, Yuu."
 
 Just as he thought the glans was getting enveloped with wet and soft things, Sera gently pressed her lips on Yuu’s.
 
-「Nmm!」
+"Nmm!"
 
-「Mufufu… Nghh, ahh…」
+"Mufufu… Nghh, ahh…"
 
 As they sealed each other’s lips and let out an inaudible exhale, Yuu got connected with Sera.
 
 Yuu felt like he could hear Elena’s muffled moans, but he was in the middle of the long-awaited penetration, so they felt kind of distant.
 
-「Oh… ooooh… hiiiin! T, this is… what I’ve always wanted!」
+"Oh… ooooh… hiiiin! T, this is… what I’ve always wanted!"
 
 When the penis poked the deepest part of her vagina, Sera jerked her face up and let out a cry as if she couldn’t hold back her feelings, but then, she plopped down and rubbed her cheeks against his.
 
-「Big sis Sera?」
+"Big sis Sera?"
 
 Her messy hair fell over Yuu’s face.
 
 Smelling its sweet fragrance, Yuu tried to ask how Sera was doing.
 
-「Ahn…」
+"Ahn…"
 
 Still turning her face down, Sera began to move hips ever so slowly.
 
@@ -855,9 +855,9 @@ It was frustrating, but it felt as if his arousal was being kept at a fixed leve
 
 If the pleasure level just before ejaculation was 99, currently it could be said to be hovering around 85.
 
-「Ahh, kuuuuh…it feels so, good…」
+"Ahh, kuuuuh…it feels so, good…"
 
-「Haa, haa, m, me too… I’ve always wanted to do something like this, even if it was just once, you see. I mean, your cock is… not only hard and big… but also very, strong!」
+"Haa, haa, m, me too… I’ve always wanted to do something like this, even if it was just once, you see. I mean, your cock is… not only hard and big… but also very, strong!"
 
 As she rubbed her cheeks against him, Sera’s hot breath was hitting him.
 
@@ -879,9 +879,9 @@ It felt as if a lot of time had passed, but they couldn’t really tell.
 
 Finally, in the midst of the sexual pleasures that seemed to overwrite and melt away over and over again, Sera lifted her chin and moaned.
 
-「Hauu… I can… no… longer… Yuu… u…」
+"Hauu… I can… no… longer… Yuu… u…"
 
-「B, big sis Sera… I, I’m also, feeling so good that…」
+"B, big sis Sera… I, I’m also, feeling so good that…"
 
 Sera raised her head and stared at Yuu.
 
@@ -889,31 +889,31 @@ The two arms supporting the upper half of her body were trembling and shaking, a
 
 With the tip of his penis poking the deepest part of her vagina, she was only moving slightly, but she was definitely more aroused than before.
 
-「Hii, hii, hii, hii, hiin… cumming!」
+"Hii, hii, hii, hii, hiin… cumming!"
 
 Though quieter than ever before, Sera reached ecstasy as if getting tossed about by a great wave.
 
 At that moment, Yuu, who felt a tightening as if he were being squeezed, also moaned uncontrollably and involuntarily thrust his hips up.
 
-「Hyaan! Y, Yuu! I’m, still cumming!」
+"Hyaan! Y, Yuu! I’m, still cumming!"
 
 Unlike men, women experienced climaxes for an extended period of time, but this time it seemed to have lasted even longer.
 
 But Yuu, too, had reached his limit.
 
-「Not good…I can’t… hold it in anymore either! Aah… it feels so good that… I’m already!」
+"Not good…I can’t… hold it in anymore either! Aah… it feels so good that… I’m already!"
 
 He thrust his hips up vigorously as if he was trying to gouge the deepest part of her vagina.
 
-「Hahii, hahii… stop doing that… I, I’m going to cum consecutively! I, I’m going to cum from my womb! Ahh, ahh! Yuu… your dick is so amazing… my head is, going blank! Hyaan! I, I’m going to fly!」
+"Hahii, hahii… stop doing that… I, I’m going to cum consecutively! I, I’m going to cum from my womb! Ahh, ahh! Yuu… your dick is so amazing… my head is, going blank! Hyaan! I, I’m going to fly!"
 
-「H, h, here I come! Cumming! I’m cumming!」
+"H, h, here I come! Cumming! I’m cumming!"
 
 No longer able to move, Sera was moaning as she clung to Yuu, letting out senseless words from the continuous portio-cumming.
 
 There, after enduring for a long time, Yuu finally reached ejaculation tonight.
 
-「Hyaan, aaaaaaaaaaaah… Ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn… Hnnn-, unyuun.」
+"Hyaan, aaaaaaaaaaaah… Ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn, ahn… Hnnn-, unyuun."
 
 While Yuu continued to ejaculate, Sera let out a long coquettish cry to the limit, and after her body jerked and quivered over and over again, she went limp, drained of strength.
 
@@ -937,9 +937,9 @@ The moment he succeeded in freeing his hands, something suddenly occurred to Yuu
 
 To untie the ropes that bound his legs, he would have to raise his body, but currently Sera was on top of him, sticking close to him in an exhausted state.
 
-「Big sis Sera, I’m sorry.」
+"Big sis Sera, I’m sorry."
 
-「Ah?」
+"Ah?"
 
 Putting his arms at Sera’s sides, he pulled her body to him, pulled out his penis, and shifted her to the side.
 
@@ -953,29 +953,29 @@ As opposed to square knots, the ropes were tied in ribbon bindings, so he manage
 
 When Yuu raised my body, he caught sight of Elena, who was still bound by the wall, and noticed that she was staring at him, but for now, he had no choice but to have her stay that way.
 
-「Huh? Yu…u…?」
+"Huh? Yu…u…?"
 
 It seemed that Sera finally noticed the fact that Yuu’s body had moved away from her and that he had gotten up on his own accord.
 
 As Sera looked at him with melty eyes, he smiled at her.
 
-「This time it’s my turn to return the favor.」
+"This time it’s my turn to return the favor."
 
-「Fweh?」
+"Fweh?"
 
 Making Sera, who was lying on her side, lie face down, he grabbed her hips with both hands and made her raise her buttocks.
 
 When he looked at the vaginal opening, he noticed that the semen was starting to flow back and leak out in drops.
 
-「Oops… Looks like we have to plug this hole here to prevent the semen I’ve especially poured inside you from leaking out.」
+"Oops… Looks like we have to plug this hole here to prevent the semen I’ve especially poured inside you from leaking out."
 
-「Err, Yuu…? Wh, what are you doing?」
+"Err, Yuu…? Wh, what are you doing?"
 
-「Is this your first time doing it in this position, big sis Sera?」
+"Is this your first time doing it in this position, big sis Sera?"
 
 Leaning over her from behind, Yuu fitted his penis, which was still hard and erect, into her and penetrated her all the way to her deepest part in one go.
 
-「No way… Ahh, hiin! No… Your dick is… Nghh, wait… Ahh, ahh, ahh, aaaaah… Something like this is… Ahh, hnn!」
+"No way… Ahh, hiin! No… Your dick is… Nghh, wait… Ahh, ahh, ahh, aaaaah… Something like this is… Ahh, hnn!"
 
 As expected, it seemed that this was the first time Sera had ever done it from behind.
 
@@ -991,33 +991,33 @@ However, perhaps having a feel of his penis, which had been inserted into her ag
 
 Smack, smack, smack!
 
-「Ahn, ahn, aahn!」
+"Ahn, ahn, aahn!"
 
 Making Sera go on all fours, Yuu grabbed her shapely buttocks with both hands and shook his hips furiously from the very beginning.
 
 From stillness to movement. Completely different from the slow sex they had just had, he was employing an intense hips movement.
 
-「Yu…u, it, it’s so intense!」
+"Yu…u, it, it’s so intense!"
 
-「How do you like it, big sis Sera?」
+"How do you like it, big sis Sera?"
 
-「S, so good… Ahn! It feels, so good… Doing it like this, just like beasts… it’s making my head… go blank. Ahn, more.」
+"S, so good… Ahn! It feels, so good… Doing it like this, just like beasts… it’s making my head… go blank. Ahn, more."
 
-「Fufufu, thank goodness. Since it seems that you like it, big sis Sera. Can I go a little rough?」
+"Fufufu, thank goodness. Since it seems that you like it, big sis Sera. Can I go a little rough?"
 
-「Go ahead. Pound me as hard as you can.」
+"Go ahead. Pound me as hard as you can."
 
-「Okay.」
+"Okay."
 
 Yuu grabbed Sera’s thin upper arms by the elbows and pulled her back.
 
 Sera’s body, which had naturally fallen flat on the stomach, was pulled upright.
 
-「Haa, haa… Huh…? Kyaun!」
+"Haa, haa… Huh…? Kyaun!"
 
 Grabbing both of Sera’s arms, Yuu slammed his hips into her vigorously.
 
-「Ahh, ahh, ahh, nghh! What is… this… amazing, it feels, amazingly good! Ohh, ohh, cumming, I’m cumming!」
+"Ahh, ahh, ahh, nghh! What is… this… amazing, it feels, amazingly good! Ohh, ohh, cumming, I’m cumming!"
 
 Among the Doggy Style positions, it was the most woman-raping-like position.
 
@@ -1031,17 +1031,17 @@ Although unfortunately they were not visible from Yuu’s position, her perfectl
 
 _Smack, smack, smack_ The sound of him pounding her buttocks echoes through the room, and Sera’s coquettish voice grew higher in tone.
 
-「Ahh… Ahee… I, I, I’m cumming… from havinggg, my inside drilled, by Yuu’s dick… Nghh, ahh, I’m going to… cum already… C, cummingggg!!!!」
+"Ahh… Ahee… I, I, I’m cumming… from havinggg, my inside drilled, by Yuu’s dick… Nghh, ahh, I’m going to… cum already… C, cummingggg!!!!"
 
 ## 12345
 
-「I think I went a little too rough earlier. I’m sorry, big sis Sera.」
+"I think I went a little too rough earlier. I’m sorry, big sis Sera."
 
-「It, it’s fine. It felt…so good…so…don’t…worry…about it…ahn!」
+"It, it’s fine. It felt…so good…so…don’t…worry…about it…ahn!"
 
-「Fufufu, glad to hear that. You’re smaller than me, so I’ve always wanted to do it like this too, you see, big sis Sera. How do you like it?」
+"Fufufu, glad to hear that. You’re smaller than me, so I’ve always wanted to do it like this too, you see, big sis Sera. How do you like it?"
 
-「Ah, ahn, it, it’s nice. This is my first time doing it like this, but… I like it. It’s like I’m being wrapped by you, Yuu… Moreover, oh, oh, you’re coming… all the way, to my deepest part!」
+"Ah, ahn, it, it’s nice. This is my first time doing it like this, but… I like it. It’s like I’m being wrapped by you, Yuu… Moreover, oh, oh, you’re coming… all the way, to my deepest part!"
 
 Switching positions from the hand-pulling doggy position, this time, he wrapped Sera from behind and moved his hips in a circular motion in a reverse-sitting position.
 
@@ -1053,17 +1053,17 @@ As such, they were showing the parts where they were connected to Elena, who was
 
 Elena, who was being shown such a scene, also seemed to be unable to take her eyes off of it.
 
-「Big sis Sera, can you see it? The parts where we are connected.」
+"Big sis Sera, can you see it? The parts where we are connected."
 
 He spread her legs even more and thrust his hips up.
 
 Sera pulled down her chin and peeked at her own private part.
 
-「I, I can see it. Yuu and I… are connected in such a manner… Ah, ahii… so deep… Oh, oh, ohoo… Y, you’re knocking on my womb.」
+"I, I can see it. Yuu and I… are connected in such a manner… Ah, ahii… so deep… Oh, oh, ohoo… Y, you’re knocking on my womb."
 
-「Guh… Big sis Sera, I’m… already…」
+"Guh… Big sis Sera, I’m… already…"
 
-「S, sure… Come… G, give me, a lot of your baby seeds… inside me!」
+"S, sure… Come… G, give me, a lot of your baby seeds… inside me!"
 
 Sera twisted her body and turned around. At the same time, she reached out her hand and stroked Yuu’s face.
 
@@ -1081,19 +1081,19 @@ As if this was the last spurt, he increased the speed of his thrusts.
 
 _Fwop, fwop_ As the lewd wet sound grew more and more intense, cloudy liquid started to seep out of the coupling tools, soaking the edge of the bed and also the floor.
 
-「Nghh, kuha! It feels so good, inside you, big sis Sera… So good that, I’m going to cum already!」
+"Nghh, kuha! It feels so good, inside you, big sis Sera… So good that, I’m going to cum already!"
 
-「Ahh, hnn! Give it to me, give it to me… Ahn, ahn, ahaaaaaan… Hii, hiin, I’m going to cum too! I’m cumming again!」
+"Ahh, hnn! Give it to me, give it to me… Ahn, ahn, ahaaaaaan… Hii, hiin, I’m going to cum too! I’m cumming again!"
 
 Shaking the bed with a creak, Yuu went for the finish.
 
-「Haa, haa, h, here I come! I’m going to give you a lot of it, so! Get… impregnated, by my seed… big sis Sera!」
+"Haa, haa, h, here I come! I’m going to give you a lot of it, so! Get… impregnated, by my seed… big sis Sera!"
 
-「Ahn, ahn, cumming, cumming, cumming! I’m going to get impregnated by your seed, Yuu! Give me, a lot of it… Kyaun!」
+"Ahn, ahn, cumming, cumming, cumming! I’m going to get impregnated by your seed, Yuu! Give me, a lot of it… Kyaun!"
 
 As if prompted by Sera’s words, Yuu reached climax as he thrust his penis up all the way to the deepest part of her vagina, and he unleashed his sperm in a torrent.
 
-「Ah… Ahan… It, it’s coming, Yuu’s hot and thick semen… Afuun…」
+"Ah… Ahan… It, it’s coming, Yuu’s hot and thick semen… Afuun…"
 
 Sera, who had received the ejaculation in her womb, gently stroked her lower abdomen with a satisfied expression on her face, but suddenly, as if her threads had been severed, she went limp.
 
@@ -1111,7 +1111,7 @@ When Yuu came back into the room again, he saw Elena lying face down in a very u
 
 Seeing Elena, who had her mouth gagged, go _mumumumu_ as she looked at him desperately, Yuu smiled as he helped her up.
 
-「Big sis, did you think you got left alone again? You’ve got it wrong. I thought you might be thirsty too, so…」
+"Big sis, did you think you got left alone again? You’ve got it wrong. I thought you might be thirsty too, so…"
 
 In Yuu’s hands were a one-liter container of barley tea and a glass, and on top of that, he had a towel hanging on his arm.
 
@@ -1119,29 +1119,29 @@ Once he put them on the table, he first removed the ball gag that had been stuff
 
 He then wiped her mouth and chin, which had turned into a mess due to the overflowing drool, with the towel.
 
-「Yu…u… Yuu! Yuuuu!」
+"Yu…u… Yuu! Yuuuu!"
 
 Elena’s voice was husky as she got overcome with emotions and single-mindedly called out Yuu’s name over and over again.
 
 After patting her head lightly, he poured barley tea into the glass.
 
-「Big sis, open your mouth.」
+"Big sis, open your mouth."
 
 _Aan-_ In front of Elena, who obediently did as she was told, Yuu swirled the glass and poured the barley tea into his mouth.
 
 He then poured the contents into Elena’s open mouth.
 
-「Fwah?!」
+"Fwah?!"
 
 Elena was surprised, but as soon as she realized the fact that she was getting mouth-to-mouth feeding from Yuu, the corners of her eyes dropped and she accepted it.
 
-「Is it good, big sis?」
+"Is it good, big sis?"
 
-「Yes, among all the tea I’ve drunk thus far, it tastes the best.」
+"Yes, among all the tea I’ve drunk thus far, it tastes the best."
 
-「Ahaha, you’re exaggerating. Do you want some more?」
+"Ahaha, you’re exaggerating. Do you want some more?"
 
-「Yes, I do! Give me more, give me more!」
+"Yes, I do! Give me more, give me more!"
 
 Like a baby bird begging to be fed by its parent, Elena flapped her mouth open and closed.
 
@@ -1151,13 +1151,13 @@ It was on the level that, if anything, she seemed to desire Yuu’s saliva more 
 
 After exchanging deep kisses for a while, Yuu temporarily moved away from Elena, only to see her looking up at him with her tongue sticking out with a craving look on her face.
 
-「I’ll let you suck something even better, big sis.」
+"I’ll let you suck something even better, big sis."
 
-「Ahaan!」
+"Ahaan!"
 
 When Yuu got down to his knees right in front of Elena and thrust his hips out, a look of pleasure appeared on her face as if she had a heart mark in her eyes.
 
-「Amm, amm… lick… Amm… so good, it tastes so good… Yuu’s dick… Amm… Nmm, nmm… Lick, sluurpa… Hnn! It’s getting bigger.」
+"Amm, amm… lick… Amm… so good, it tastes so good… Yuu’s dick… Amm… Nmm, nmm… Lick, sluurpa… Hnn! It’s getting bigger."
 
 Elena was still restrained, but she took the whole penis into her mouth and sucked on it with such vigor that it seemed as if she was a dog that had been given her favorite food.
 
@@ -1169,21 +1169,21 @@ Elena, who looked at it with entranced eyes, traced the popping veins with the t
 
 No sooner than that… She fervently moved her face and crawled her tongue along the frenulum.
 
-「Kuh… Aah, that feels so good, big sis.」
+"Kuh… Aah, that feels so good, big sis."
 
-「Y…you see…」
+"Y…you see…"
 
 Hearing Yuu’s words, Elena looked up at him and was trying to say something.
 
 Yuu put his hand on his sister’s head and stroked it gently.
 
-「It’s okay. Go ahead and say it.」
+"It’s okay. Go ahead and say it."
 
 The moment she saw Yuu’s smile, Elena began to speak as if she were dumping out the emotions that she had been unable to put into words until a moment ago.
 
-「Y, you see, I’ve been enduring it. All this time. But as I watched you had such amazing sex with Sera… twice… I had this desire to have such sex with you, too!
+"Y, you see, I’ve been enduring it. All this time. But as I watched you had such amazing sex with Sera… twice… I had this desire to have such sex with you, too!
 
-As I watched you do it with Sera in front of me, I had a mixed-up feeling of jealousy, envy, and strangely enough arousal… My body was tingling and aching and I couldn’t stand it, on top of that, Yuuchin No. 2 was moving inside me so vigorously, which felt better than when I masturbated on my own. And yet, no matter how much time passed, I couldn’t cum even though I felt like I was going to cum, so I am still feeling frustrated. So! W, what I want to say is… Err, you see, I want you to put your pee-pee in my pussy, Yuu! I want it so bad! A, and then, you see… Like Sera, I want you to pour your semen inside me, too! Please… I beg you. It’s fine even if it’s just for tonight…I want you to have mating sex with me, too…」
+As I watched you do it with Sera in front of me, I had a mixed-up feeling of jealousy, envy, and strangely enough arousal… My body was tingling and aching and I couldn’t stand it, on top of that, Yuuchin No. 2 was moving inside me so vigorously, which felt better than when I masturbated on my own. And yet, no matter how much time passed, I couldn’t cum even though I felt like I was going to cum, so I am still feeling frustrated. So! W, what I want to say is… Err, you see, I want you to put your pee-pee in my pussy, Yuu! I want it so bad! A, and then, you see… Like Sera, I want you to pour your semen inside me, too! Please… I beg you. It’s fine even if it’s just for tonight…I want you to have mating sex with me, too…"
 
 Maybe that was the expression of her wish spurred by her instinct as a woman that transcended broconhood.
 
@@ -1207,25 +1207,25 @@ In that case, then it would not really matter if he cum inside Elena as well, wo
 
 However, if they had a baby, what kind of relationship would they have?
 
-「Yuu?」
+"Yuu?"
 
 Elena looked up at Yuu, who was falling into thought for a while, with a worried look on her face.
 
-「Ah… No, it’s nothing.」
+"Ah… No, it’s nothing."
 
 For the time being, Yuu decided to undo the restrictions on Elena’s legs.
 
 However, Elena, who had been restrained in the same position for so long, was unable to even stand up and remained on all fours.
 
-「Yuu… U, umm.」
+"Yuu… U, umm."
 
 As he looked at Elena who was showing him her buttocks defenselessly, an idea popped into Yuu’s head.
 
 He stroked her shapely buttocks and spoke to her.
 
-「Big sis, I’m going to have you move to the bed just like this. Here, let me support you.」
+"Big sis, I’m going to have you move to the bed just like this. Here, let me support you."
 
-「…Okay.」
+"…Okay."
 
 He thought about undoing the restrictions on her arms as well, but it would probably be difficult to do that without the person who tied them.
 
@@ -1239,19 +1239,19 @@ Then he switched off and removed the vibrator that had been left inserted in Ele
 
 The vibrator was soaking wet, and love juices were trickling from the tip.
 
-「Just like this, I’m going to insert it into you from behind. And this time, big sis, why don’t you return the favor to big sis Sera in full?」
+"Just like this, I’m going to insert it into you from behind. And this time, big sis, why don’t you return the favor to big sis Sera in full?"
 
-「Aah-, fufufu, sure.」
+"Aah-, fufufu, sure."
 
-「Hnn…hmm?」
+"Hnn…hmm?"
 
 When Sera looked up as she felt a strange feeling on her nether region, she saw that Elena was sucking on her vaginal opening, sucking the cloudy fluid that had been steadily leaking out.
 
-「Hyaan! Wha… Huh? E, Elena? Ahn, hey… D, don’t suck me there!」
+"Hyaan! Wha… Huh? E, Elena? Ahn, hey… D, don’t suck me there!"
 
-「Let me have some of that Yuu’s semen, too!」
+"Let me have some of that Yuu’s semen, too!"
 
-「Ah, ah noo! I’m still sensitive down there!」
+"Ah, ah noo! I’m still sensitive down there!"
 
 Seeing Elena begin to lick Sera’s secret place, Yuu spread Elena’s buttocks and fit his penis into her soaking wet vaginal opening.
 
@@ -1263,11 +1263,11 @@ Yuu nodded his head and penetrated Elena without hesitation.
 
 # Chapter 92 - Farewell Party (4) -Peach-colored Breath-
 
-「Haan, ahn, aahn! E, Elena, your tongue is going in there! Hnn, hiii!」
+"Haan, ahn, aahn! E, Elena, your tongue is going in there! Hnn, hiii!"
 
-「Amm… Lick, lick, slurp… Ahn! Nmm, nmm-, ahnn!」
+"Amm… Lick, lick, slurp… Ahn! Nmm, nmm-, ahnn!"
 
-「Oh, ooh… this feels pretty… nghh! good, big sis.」
+"Oh, ooh… this feels pretty… nghh! good, big sis."
 
 Thinking that it might hurt if he let her kneel directly on the wooden floor, he picked up the bath towel that they had originally laid out, but it had become so wet that drops of water were dripping from it.
 
@@ -1283,9 +1283,9 @@ Doing as she was told by Yuu, Elena buried her face in Sera’s crotch and seeme
 
 Yuu watched as Sera, who spread her legs wide open, jerked her chin up and moaned as he repeated the pistoning.
 
-「Hiing! T, that place is… Ahn! I, I’m sensitive there… Elenaaa.」
+"Hiing! T, that place is… Ahn! I, I’m sensitive there… Elenaaa."
 
-「Sera, nmm… you can cum if you want.」
+"Sera, nmm… you can cum if you want."
 
 Position-wise, perhaps she started licking her clitoris.
 
@@ -1297,15 +1297,15 @@ For that reason, Yuu also continued to enjoy and savor Elena with slow movements
 
 However, Yuu, having his mischievous desire stirred, reached out to Elena’s modest breasts and rubbed them while pinching her nipples.
 
-「Hnn, kyuu! Nmm! Nghh, hnn! Nmm--」
+"Hnn, kyuu! Nmm! Nghh, hnn! Nmm--"
 
-「Hyan! Hyaan! Don’t suck… on my clit!」
+"Hyan! Hyaan! Don’t suck… on my clit!"
 
 Sera put her hands on Elena’s head, but despite that, the teasing didn’t seem to weaken.
 
-「Haa, haa, it sure is nice. Having sex while watching two beautiful elder sisters moaning is just the best.」
+"Haa, haa, it sure is nice. Having sex while watching two beautiful elder sisters moaning is just the best."
 
-「Ahn, geez, Yuu… Ahn, ahn, noo! E, Elena… Ahii, at this rate…」
+"Ahn, geez, Yuu… Ahn, ahn, noo! E, Elena… Ahii, at this rate…"
 
 Sera, who appearance-wise was younger than her actual age, pure and ephemeral like a fairy, was writhing as she got her vagina licked by his elder sister.
 
@@ -1313,17 +1313,17 @@ The person in question, Elena, was sticking her buttocks out with her model-like
 
 How could he not be aroused by this?
 
-「Haa, haa, big sis, that feels so… good!」
+"Haa, haa, big sis, that feels so… good!"
 
 Since he had ejaculated twice, Yuu was still far from reaching climax, but as he pounded her with big strokes and savored her inside to his heart’s content, he stroked her body all over.
 
 From her shapely buttocks to her slim, tight waist. From her splendidly curvy back, he brushed her disheveled hair away to expose her nape and stroked it.
 
-「Ahn, hii, hii hiin! I, I’m… Aaaaaaaaah!」
+"Ahn, hii, hii hiin! I, I’m… Aaaaaaaaah!"
 
 As Elena continued to passionately give her cunnilingus even while letting out a muffled gasp, Sera seemed to have finally reached her limit
 
-「Ahh, hii… C, cumming-!!!」
+"Ahh, hii… C, cumming-!!!"
 
 The moment she stretched her legs straight and arched her body back, he could see her long platinum-blonde hair sway to the back and her beautiful breasts jiggle.
 
@@ -1331,29 +1331,29 @@ _Splash_ As soon as Elena, who was hit in the face by a cloudy, muddy squirt, sh
 
 Fearing that she might suffocate if she stayed as she was, Yuu held Elena with both hands and raised her upper body.
 
-「Ahaan, hahii, Seraa… Did you cum…? Ufufun… Oh, ooooh… Nghh, ahn! It, it’s so deep!」
+"Ahaan, hahii, Seraa… Did you cum…? Ufufun… Oh, ooooh… Nghh, ahn! It, it’s so deep!"
 
-「Fufufu, big sis, you did well. This time, I’m going to make you feel even better.」
+"Fufufu, big sis, you did well. This time, I’m going to make you feel even better."
 
 As he poked the deepest part of her vagina with his penis, he gouged it out in a circular motion.
 
-「Ahii… It, it feels so good. I’m… already… haan, ahh… Kuhiin!」
+"Ahii… It, it feels so good. I’m… already… haan, ahh… Kuhiin!"
 
 It looked like Elena could no longer speak properly. Her voice was also still husky.
 
 Then Sera, who had raised her upper body, sat on the edge of the bed, smiled as she looked at Elena, and reached out a hand to gently stroke her cheek.
 
-「I understand. Elena, you’ve been cumming over and over again since a while ago, haven’t you?」
+"I understand. Elena, you’ve been cumming over and over again since a while ago, haven’t you?"
 
-「Huh?」
+"Huh?"
 
-「Auu, auu… Yu…u… my inside… with your pee-pee… Ah, ah, ahh, nghh! It makes me, feel so good… Ahn! I can’t hold it in… My body deliberately… Yu, Yuu, Yuuu!」
+"Auu, auu… Yu…u… my inside… with your pee-pee… Ah, ah, ahh, nghh! It makes me, feel so good… Ahn! I can’t hold it in… My body deliberately… Yu, Yuu, Yuuu!"
 
-「Err, sorry. Do you understand what she is saying?」
+"Err, sorry. Do you understand what she is saying?"
 
-「Ufufu. Elana’s place down there, you see, I think it’s been made to, or rather trained to remember your dick, so she ends up cumming so easily by conditioned reflex. How nice, how enviable. I wish I could also have sex with you like that every day, Yuu.」
+"Ufufu. Elana’s place down there, you see, I think it’s been made to, or rather trained to remember your dick, so she ends up cumming so easily by conditioned reflex. How nice, how enviable. I wish I could also have sex with you like that every day, Yuu."
 
-「Ha, haha…」
+"Ha, haha…"
 
 Almost a month had passed since he reconciled with Elena.
 
@@ -1367,43 +1367,43 @@ All of that was due to not only the fact that Elena was more submissive than he 
 
 Only her breasts were regrettably small, but that didn’t really amount to a weak point.
 
-「Lean forward a little more.」
+"Lean forward a little more."
 
-「Ah, yes.」
+"Ah, yes."
 
 When Yuu leaned forward while still being connected to Elena, Sera held Elena in her arms.
 
 Then, as she moved her face closer to Elena, who was panting with her tongue out, she licked the tip of her tongue and began to exchange deep kisses with her.
 
-「Nmm, lick, lick, chuu, chuupa… Hnn, nghh, I really like you, Elena. Yes, to the point that I want to tease you.」
+"Nmm, lick, lick, chuu, chuupa… Hnn, nghh, I really like you, Elena. Yes, to the point that I want to tease you."
 
-「Ah… Fwah… Nghh… S, Sera… Ahn, ahn!」
+"Ah… Fwah… Nghh… S, Sera… Ahn, ahn!"
 
 Sera licked Elena’s mouth, which was trickling with drool, without hesitation and showed a truly charming smile.
 
 As if petting her, she stroked Elena’s head and said…
 
-「You see, I’ve had experiences with both boys and girls, but this is my first time doing it with a boy and a girl at the same time. My first threesome, it’s very fun! I guess this, too, is thanks to you two, Yuu, Elena.」
+"You see, I’ve had experiences with both boys and girls, but this is my first time doing it with a boy and a girl at the same time. My first threesome, it’s very fun! I guess this, too, is thanks to you two, Yuu, Elena."
 
-「It makes me happy to hear you say that… Nghh!」
+"It makes me happy to hear you say that… Nghh!"
 
-「More, show me more of the scene when you two are feeling good.」
+"More, show me more of the scene when you two are feeling good."
 
-「Ah… Ah, I’m also about to…」
+"Ah… Ah, I’m also about to…"
 
 At the beginning, Yuu had a lot of leeway, but the truth was that, if you went all the way to the deepest part, the doggy position was more sexually arousing for both the man and woman than one might think.
 
 Moreover, albeit unconsciously, Elena, who was keeping her legs shut, was tightening up on the inside, as if saying that she would not let go of his penis tonight.
 
-「Haa, aah… Kuhh… I feel like I’m going to have my semen squeezed out of me.」
+"Haa, aah… Kuhh… I feel like I’m going to have my semen squeezed out of me."
 
 Continuing to thrust his penis all the way to the deepest part of her vagina, Yuu shook his hips and pounded her hard.
 
 Every time Yuu shook his hips, cloudy liquid overflowed from the coupling tools and made a fwopping sound echoed through the room.
 
-「Ahh… Ohh, ohh, Yu…u, your dick… is so amazing! Ahii, hii, hii, I’m cumming again, cumming, cumming, cumming, I’m cumming! Ahn, I can… no longer think about anything… Yuu, Yuu, come to me, let it all out!」
+"Ahh… Ohh, ohh, Yu…u, your dick… is so amazing! Ahii, hii, hii, I’m cumming again, cumming, cumming, cumming, I’m cumming! Ahn, I can… no longer think about anything… Yuu, Yuu, come to me, let it all out!"
 
-「Kaha, if you clamp down on me that tightly… Guh, ahh, ahh, cumming, I’m cumming, big sis!」
+"Kaha, if you clamp down on me that tightly… Guh, ahh, ahh, cumming, I’m cumming, big sis!"
 
 He no longer had the leeway to think about whether he should spray it over his elder sister’s body or have her drink it as he had done thus far.
 
@@ -1411,11 +1411,11 @@ Following his male instinct to release his sperm into the female’s womb and im
 
 He held Elena’s body tightly and finished as he thrust his penis so deep into her that it pushed back her womb entrance.
 
-「Ugh… It, it’s coming!」
+"Ugh… It, it’s coming!"
 
-「Hyah! Ah, aaaahn!」
+"Hyah! Ah, aaaahn!"
 
-「Aah… Both of you… are very wonderful.」
+"Aah… Both of you… are very wonderful."
 
 As Yuu continued to ejaculate, Elena’s body continued to quiver as she accepted it.
 
@@ -1437,35 +1437,35 @@ Even though the sweat had subsided, Elena and Sera were sticking very close to h
 
 That was because as Elena, who smiled happily as she felt Yuu’s body warmth, started to kiss his bare skin, Sera, too, started to shower him with kisses, refusing to lose.
 
-「Chuu, chuu! Ufufu…Yuu, I love you!」
+"Chuu, chuu! Ufufu…Yuu, I love you!"
 
-「Chuu… lick. I love you, too, Yuu.」
+"Chuu… lick. I love you, too, Yuu."
 
 Elena gently stroked Yuu’s head and kissed his cheeks in succession, and Sera did the same from the other side.
 
 The two of them were doting on Yuu, as if competing with each other.
 
-「Hahaha… It’s kinda ticklish, or rather, embarrassing.」
+"Hahaha… It’s kinda ticklish, or rather, embarrassing."
 
-「Oh my, just ticklish?」
+"Oh my, just ticklish?"
 
 Sera leaned her face close to Yuu’s and looked into him with her blue eyes.
 
-「Ugh…」
+"Ugh…"
 
 As he felt the soft sensation of their lips and at the same time their silky long hair, on top of that having their naked bodies lying on top of him, he could tell that his manly part was reacting once again.
 
 Above all, both of them were rubbing Yuu’s crotch with their thighs.
 
-「Yuu’s pee-pee…it’s getting hard. Ufufu!」
+"Yuu’s pee-pee…it’s getting hard. Ufufu!"
 
-「Even though you’ve cum three times pretty much consecutively, you get hard again not long after, you’re the fist boy I’ve met that’s able to do that, Yuu.」
+"Even though you’ve cum three times pretty much consecutively, you get hard again not long after, you’re the fist boy I’ve met that’s able to do that, Yuu."
 
-「Nmm…」
+"Nmm…"
 
 Sera, who crawled her tongue up from his chin, took Yuu’s lips.
 
-「Ahn, me too.」
+"Ahn, me too."
 
 The next instant, Elena also brought her lips closer from the side.
 
@@ -1473,19 +1473,19 @@ As Elena and Sera continued to compete to exchange kisses with Yuu, his mouth en
 
 Licking it off, Sera murmured with a look of ecstasy on her face.
 
-「Aah-n. I guess tonight will be the last time I’ll be able to do such a thing. I want to take Yuu home!」
+"Aah-n. I guess tonight will be the last time I’ll be able to do such a thing. I want to take Yuu home!"
 
-「Nope. If you’re itching to do it, you can just come to our place again.」
+"Nope. If you’re itching to do it, you can just come to our place again."
 
 As if refusing to hand him over to her, Elena held Yuu’s head in her arms.
 
-「I’m sorry. Big sis Sera. That I won’t be able to see you off.」
+"I’m sorry. Big sis Sera. That I won’t be able to see you off."
 
 He was certainly surprised by the gap between her appearance and her personality, but as far as Yuu was concerned, he didn’t dislike women that were assertive in sex like Elena.
 
 As such, the fact that he wouldn’t be able to meet her for a while made him a little sad.
 
-「Well, I guess it can’t be helped. Besides, it doesn’t look like I’ll be assigned here anytime soon, after all.」
+"Well, I guess it can’t be helped. Besides, it doesn’t look like I’ll be assigned here anytime soon, after all."
 
 According to a senior colleague at the company, it seemed that after gaining experience for one or two years at the branch office where they were assigned, they would be transferred to another department after a comprehensive evaluation of the person in question’s wishes, aptitude, and the company’s circumstances.
 
@@ -1493,21 +1493,21 @@ Sera lived in a town he was not too familiar with in western Hokkaido, and seeme
 
 Sera showed a wide smile and poked Yuu with her finger on the tip of his nose.
 
-「So instead, you see… Be sure to come visit us during the summer holidays, okay? The three of you.」
+"So instead, you see… Be sure to come visit us during the summer holidays, okay? The three of you."
 
-「That may be a good idea. Mom also said she’d like to meet Suzanna-san, after all.」
+"That may be a good idea. Mom also said she’d like to meet Suzanna-san, after all."
 
-「Umm, well, in that case…」
+"Umm, well, in that case…"
 
-「Fufufu, I’m looking forward to it. For today, I guess I’ll just settle with just getting souvenir from Yuu.」
+"Fufufu, I’m looking forward to it. For today, I guess I’ll just settle with just getting souvenir from Yuu."
 
-「Souvenir?」
+"Souvenir?"
 
 After looking at the face of the puzzled Yuu, Sera moved her gaze meaningfully to her lower abdomen.
 
-「I guess we’ll find out in August at the earliest-」
+"I guess we’ll find out in August at the earliest-"
 
-「Ah… I see.」
+"Ah… I see."
 
 Including tonight, Yuu had cum inside her three times, but he had no idea if he would be able to hit the mark with that, or how high the probability was.
 
@@ -1519,13 +1519,13 @@ The current Yuu was still young, and through the semen analysis, he was deemed t
 
 Unrelated to those thoughts of Yuu’s, Sera smiled innocently, stuck her body close to him, and whispered…
 
-「To increase the odds… let’s do it one more time.」
+"To increase the odds… let’s do it one more time."
 
-「Hold on a sec. You did it twice, didn’t you, Sera? I’ve only done it once, you know?」
+"Hold on a sec. You did it twice, didn’t you, Sera? I’ve only done it once, you know?"
 
-「Isn’t it fine? I’ll be parting with Yuu tonight, you know?」
+"Isn’t it fine? I’ll be parting with Yuu tonight, you know?"
 
-「But… If we go at it fairly, now is my turn, and yours is after that, Sera.」
+"But… If we go at it fairly, now is my turn, and yours is after that, Sera."
 
 When it came to having sex with Yuu, neither Elena nor Sera would compromise.
 
@@ -1537,33 +1537,33 @@ Which meant about three hours had passed since they entered this room.
 
 Perhaps the phrase: Cum flies like an arrow; referred to such a moment.
 
-「Big sis, big sister Sera?」
+"Big sis, big sister Sera?"
 
 Yuu reached out with both hands and placed them on top of the heads of his two elder sisters who kept arguing with each other.
 
-「What is it? Yuu?」
+"What is it? Yuu?"
 
-「What’s the matter, Yuu?」
+"What’s the matter, Yuu?"
 
 The two immediately smiled and looked at Yuu. Talk about calculating girls.
 
 While raising his upper body, he hugged Elena and Sera tightly and kissed them alternately.
 
-「Nmm… Ahn…」
+"Nmm… Ahn…"
 
-「Nmmm…Yuu… Hnn…」
+"Nmmm…Yuu… Hnn…"
 
 Yuu smiled and said to the two as they stuck out their lips and begged him for kisses.
 
-「It’s already so late, so I’m going to make the next one the last one.」
+"It’s already so late, so I’m going to make the next one the last one."
 
-「「Huh?!」」
+""Huh?!""
 
 It was only at such a moment that the two raised a cry in harmony.
 
-「I mean, you two are going to go out to play tomorrow morning, aren’t you? And I have school.」
+"I mean, you two are going to go out to play tomorrow morning, aren’t you? And I have school."
 
-「T, that may be true, but…」
+"T, that may be true, but…"
 
 The two looked at each other.
 
@@ -1571,43 +1571,43 @@ Regardless of what they said, they appeared to be sad upon hearing that this wou
 
 There, Yuu spoke in one go in as cheerful of a tone as possible.
 
-「First, let’s start with big sis Sera. Once big sis Sera cums, she will switch places with big sis. Once big sis cums, she will switch places with big sis Sera, and so on. I’ll do my best to satisfy you both as much as possible, so…」
+"First, let’s start with big sis Sera. Once big sis Sera cums, she will switch places with big sis. Once big sis cums, she will switch places with big sis Sera, and so on. I’ll do my best to satisfy you both as much as possible, so…"
 
-「Hohou.」
+"Hohou."
 
 Sera, who gently stroked the tip of his erect penis, shot him a flirtatious glance.
 
-「If you say so, Yuu… Fine, let’s go with that.」
+"If you say so, Yuu… Fine, let’s go with that."
 
 Saying so, Elena also nodded her head reluctantly.
 
-「In return, I’ll be the one to get Yuu’s semen, okay?!」
+"In return, I’ll be the one to get Yuu’s semen, okay?!"
 
-「Well, I wonder about that?」
+"Well, I wonder about that?"
 
 Straddling Yuu’s lower abdomen as he lay on his back again, Sera sported a bold smile as she tried to get into position for penetration.
 
 Elena, who was waiting her turn, was waiting right behind her.
 
-「I’ll show you my serious hips movements.」
+"I’ll show you my serious hips movements."
 
-「Ahaha. Please go easy on me.」
+"Ahaha. Please go easy on me."
 
 As Sera, who was leaning over Yuu with one hand on his penis, moved her hips while showering him with kisses, her still-wet vaginal opening swallowed the glans in one gulp.
 
-「Nghh!」
+"Nghh!"
 
-「Aahn! It’s coming… in!」
+"Aahn! It’s coming… in!"
 
 As Sera lowered her hips, the swallowed penis poked her all the way to the deepest part of her vagina.
 
-「Yuu, do your best, and save some for big sis, too, okay?」
+"Yuu, do your best, and save some for big sis, too, okay?"
 
 There, Elena wrapped her arms around Sera from behind toward her lower abdomen and looked over her shoulder at Yuu.
 
-「Ha, haha… I’ll do my best.」
+"Ha, haha… I’ll do my best."
 
-「Hnn… Hnnn! Geez… Not you, too, Elena… Haan, haan, ha… ahn! I have to… e, endure it… until I get to… squeeze out Yuu’s semen… Ah, ah, ahn!」
+"Hnn… Hnnn! Geez… Not you, too, Elena… Haan, haan, ha… ahn! I have to… e, endure it… until I get to… squeeze out Yuu’s semen… Ah, ah, ahn!"
 
 Sera was acting strong, but she was probably having her clitoris caressed by Elena.
 
