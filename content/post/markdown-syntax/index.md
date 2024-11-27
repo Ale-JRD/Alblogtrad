@@ -6,7 +6,7 @@ description: Sample article showcasing basic Markdown syntax and formatting for 
 ---
 
 
-## Chapter 89 - Farewell Party (1) ~M~
+## Chapter 89 - Farewell Party (1) -M-
 
 Friday finally arrived.
 
@@ -88,7 +88,7 @@ Perhaps feeling very ill at ease, Elena came out of the bathroom with her hair s
 
 「Got it. I’m coming.」
 
-「Okay~」
+「Okay-」
 
 Heaving out a sigh of relief when she heard Yuu and Sera’s voices coming from separate rooms, Elena entered the room with only a bath towel wrapped around her naked body.
 
@@ -338,7 +338,7 @@ Perhaps startled by the sudden touch, Elena’s slender body jumped.
 
 Sera did not continue to touch the same spot, but instead, with a slight pause, she traced the feather duster to the neck, shoulders, and chest.
 
-「Muu~, muu~! Nghh… Muu, hii!」
+「Muu-, muu-! Nghh… Muu, hii!」
 
 Elena shook her head, trying to make some kind of appeal, but it didn’t get through to Sera.
 
@@ -428,7 +428,7 @@ Sera’s hand went down and her icefish-like fingertips traced her crotch.
 
 When Yuu looked down too, he saw that the ropes wrapping around her crotch were wetter than before as they dug into her, soaking wet even the area around it, including her pubic hair.
 
-「Kufufu. You came just from your nipples, didn’t you? The you who feel it more than I thought you would is so cute~, Elena.」
+「Kufufu. You came just from your nipples, didn’t you? The you who feel it more than I thought you would is so cute-, Elena.」
 
 「Muu…」
 
@@ -446,7 +446,7 @@ However, looking at the fact that her nipple, was still being caressed by Yuu wi
 
 ●○●○●○●○●
 
-「Which~ one~ should~ I~ use~ I~ wonder~… Alright, I choose you!」
+「Which- one- should- I- use- I- wonder-… Alright, I choose you!」
 
 God knew when it had ended up being found out by Sera too, but she took out a box from under the bed containing three vibrators, named Yuuchin No.1 through No. 3.
 
