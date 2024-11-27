@@ -1,1729 +1,2781 @@
 ---
-title: Hello World
+title: trad-1
 description: Welcome to Hugo Theme Stack
-slug: hello-world
+slug: trad-1
 date: 2022-03-06 00:00:00+0000
 image: cover.jpg
-categories:
-    - Example Category
-tags:
-    - Example Tag
+#categories:
+    #- Example Category
+#tags:
+    #- Example Tag
 weight: 1       # You can add weight to some posts to override the default sorting (date descending)
 ---
 
 
-## Chapter 79 - Inter-class Ball Game Competition (7) ~Together~
+## Chapter 83 - Request to the Security Personnel ~Touch~
 
-「Haan… Ahn… Hnn! Y, Yuu-kun, geez, you’re just like a baby. Do you like boobs that much?」
+When Kanako returned and opened the door from the entrance to the communal space and saw the scene, she couldn’t help but open her mouth with a gasp.
 
-Hugging Yuu, Youko gently stroked not only his back, but also his head as if she was caressing a baby.
+After all, there she saw Touko quietly sitting in front of Yuu, who was sitting deeply in the office chair.
 
-「Hmm? Yes, I love them. Why? Is it strange?」
+It was something that was only possible because of her small stature, but normally, it was a situation that would not be possible unless they were in a very intimate relationship.
 
-「Nghh… Hnn, for an adolescent boy to love boobs, I don’t think I’ve heard such a case much. Right, Kazumi?」
+「Wha, what are you doing?!」
 
-「Ahn. That may be the case… But if it’s you, Yuu-kun, feel free to touch them anytime you want.」
+「Tch, she’s back already.」
 
-「Even if I suddenly touch them in the hallway?」
+Kanako caught Touko’s quiet mutter, and her brow wrinkled.
 
-「Yes. Touch them to your heart’s content.」
+Yuu, who had been looking at Touko’s head and doing something, didn’t notice and after a while he looked at Kanako and smiled, still holding the brush in his hand.
 
-「Mine too!」
+「Welcome back, Kanako-san. You see, Touko-san doesn’t seem to take care of her hair very much, so I’m doing it for her.」
 
-To receive permission to touch their breasts when he ran into them in the hallway of the school, talk about delightful thing.
+「I, see…」
 
-But for now, Yuu decided to enjoy the sex with these two.
+「You have nice raw materials, so I think you should take care of yourself properly, Touko-san.」
 
-Thinking back, these two were the youngest of all the women that Yuu had been with so far, at 15 years old.
+「It’s a pain. But… If, if you will do it for me, Yuu-sama…」
 
-However, just as Yuu himself already had a mature body and splendid sexual organs, Youko and Kazumi had bodies that had fully grown up as women, and they were reacting sensitively.
+「Wha, what are you-」
 
-Moreover, their skin was also youthful, firm and supple, and felt springy and juicy to the touch.
+Before Kanako could interject, Yuu went and replied.
 
-The girls’ bodies, which had just begun to change from that of a child to that of an adult, greatly stirred Yuu’s desire.
+「It can’t be helped. You’ve been taking care of me all this time, so I don’t mind doing this much for you, but you see… You’re a girl, so let’s strive so that you can do it on your own as much as possible.」
 
-Having switched positions with Kazumi, right now, Youko was sitting on top of Yuu who was now sitting on the toilet seat, connected in a face-to-face sitting position.
+「I’ll consider it positively.」
 
-Youko was a little taller than him, so her breasts were sticking out toward him in the perfect position.
+「Hahaha. Please do. Look, it’s pretty now.」
 
-When he penetrated Youko with his penis, which remained erect even right after ejaculating, she seemed to feel a little pain, but the pleasure and delight of having her first sexual experience with Yuu seemed to outweigh it.
+Bringing over the hairbrush and a number of styling products used by his mother and elder sister, Yuu first wet her hair in the washroom, and then dried it while brushing it.
 
-Likewise, even though the virgin membrane was no longer there, the inside of Youko, who was an athletic girl, boasted very great tightness, and it felt so good that Yuu felt like he was going to come when he penetrated her all the way to her deepest part.
+After that, they moved here for the finishing touch.
 
-Having ejaculated once, Yuu had a little more leeway than when he did it with Kazumi, but as opposed to moving as soon as the penetration was complete, he rolled up her gym uniform, took off her bra, and sucked on her modest but perky upturned breasts.
+It probably would have been a better idea to go to a hair salon and have them style it in the modern style, but Touko was quite the lazy person and had no interest in polishing her outward appearance, so it was probably impossible.
 
-Asking Kazumi to come next to him too, he stroked her body, which stirred his male instincts, around and fondled her breasts.
+However, if you looked closely, you could see that she had a cute face.
 
-「Shall we get started, Youko? Do you want to be the one to move? Or do you want me to?」
+The voluminous sides of her hair were swept back, and the bangs, which were a little bushy, were scattered moderately.
 
-When Yuu looked up at her, Youko, whose expression had started to turn melty, nodded her head and pressed her lips against his.
+With only that, it made her look cuter than usual, even if it was the style of the 80’s idols in Yuu’s memory.
 
-「Hnn, nmm, chuu, chuu… Yuu-kun, please.」
+Yuu noticed that Kanako had a shopping bag snugly stuffed in both hands.
 
-「Alright.」
+「I thought it was unusual of you to not be here, but were you out shopping, Kanako-san?」
 
-In a state where she was sitting with his back straight, Yuu held Kazumi close to him with his right hand, while his left hand firmly held Youko’s thin waist, and he began to shake his hips little by little.
+「No, this is…」
 
-「Ahn, hnn, fwah! Ahn! Amazing, it’s poking me so rapidly! Ahn, ahn, so good, it feels so good, Yuu-kuun… Yuu-kun filling up, my inside, with his thing… It, it feels so good!」
+The resident security personnel couldn’t be away for long.
 
-「M, me too, inside of you, it feels so good, Youko! Nmm!」
+As such, they regularly asked a company employee to go shopping for them, which Kanako would pick up in the parking space in the basement.
 
-It seemed that Youko belonged to the track club during her middle school days, and as one would expect from someone who had been working out and training all the time, the tightness was nothing short of great.
+While she was at it, she would pick up some documents from the company, so she should be gone for about 10 to 15 minutes only.
 
-He could feel her tightly clamping down on his penis, which was snugly penetrating her all the way to the deepest part.
+And, as if switching places with Kanako, Yuu had happened to come over and had been taking care of Touko’s hair.
 
-On the other hand, as Youko recovered from the shock of welcoming a penis into her for the first time, this time, her sensuality as a woman wouldn’t stop tingling, making her feel as if it was not her own body, and she had no choice but to cling to Yuu while moaning.
+Since the time when his elder sister Elena was shut in, Yuu had often come in and out of the security personnel’s room.
 
-There, Kazumi threw her arms around Yuu and took his lips.
+Kanako and Touko were bewildered when Yuu first started coming over, but now they welcomed him with open arms.
 
-「Nmm, chuu… how… nice. It kinda makes me want to do it again, too.」
+As they chatted, Yuu also got to hear their personal stories, which made him happy.
 
-「Hahaha. We’re doing it in turns, so wait until I’m done with Youko, okay?」
+Kanako had a younger brother who was one year older than Yuu, and partly because of their age difference, it seemed that they were close to each other like any normal siblings.
 
-「T, that’s right… Right now, it’s my turn, after all! I’m getting scrapped… in my deepest part! Hnn, ahn! That, it, it feels so good! Hiin, hiin, I’m going to… cum again!」
+However, he went and moved into a dormitory at a boys’ school last year, so she was feeling lonely, or something.
 
-As Yuu began to attack her in a motion as if he was scrapping, gouging the deepest part of her vagina, Youko, unable to endure it, jerked her chin up.
+In fact, there was a picture of the two of them side by side at Kanako’s seat.
 
-Yuu licked up Youko’s slender neck with his tongue, which was still dripping with saliva as it had been twining together with Kazumi’s.
+Touko’s father was a ladies’ man, which was unusual for a man of this world, and it seemed that he had taken seven women as his wives.
 
-「Feel free to cum. There, go ahead and cum, Youko!」
+Touko herself was the child of his sixth wife and was apparently the third youngest one among the thirteen brothers and sisters.
 
-「Nghh… Hnn, cumming! Ahn, Yuu-kun is making me cum! Ahn, aaaaaaaaah!! Cumming~~~!!!」
+The family seemed to be a large and lively one living in a magnificent mansion, but he was curious to know how Touko lived among them.
+
+The place was smaller than the Hirose family’s living space, probably only about 2DK.
+
+In addition to a kitchen that was slightly smaller than the Hirose family’s, there was a toilet and a bath. At the back, there was a private room that the two were using as their bedroom.
+
+The place Yuu and the others were currently at was a room about 12 tatami mats in size, which was located the dining room.
+
+The floor was covered with a plain gray carpet, and there was a long desk, which would probably be only enough to be used by three people side by side, and three office chairs.
+
+On the plain white walls, in addition to a calendar, there were several sheets of paper, including a map of the city and its surroundings and a timetable.
+
+The shelves arranged by the wall were also rugged, steel-made ones, like those in an office.
+
+Coupled with the fact that there was also a case for papers, a word processor, and a faxphone on the desk, the place gave off a faint air of a small office.
+
+Usually, Yuu and Martina were in charge of dinner on Saturdays and Sundays, but when he told her that he would be late today because of student council-related work, Martina said she would buy something on her way home from work.
+
+After the meeting with Sairei, he enjoyed a foursome with the three members of the student council, and by the time he got home, it was already almost 6:00 PM.
+
+When Martina was not home, Elena would follow him around most of the time, and since it was Saturday, Sera had also come over from the company’s dormitory.
+
+In contrast to her ephemeral, fairy-like appearance, Sera showed no reservation.
+
+As expected, she had learned to show some restraint in Martina’s presence, but she was the type of person who did anything as they pleased: begging for kisses whenever she saw an opportunity, putting her hands through the gaps of his clothes and stroking his body around, getting carried away and touching his penis, and to top it off, exposing her lower half and sneaking into his bed.
+
+Truly a perverted woman.
+
+Though, Yuu was the kind of guy who would strike back in a fair and square manner when faced with things that would make ordinary boys run away, so it was probably understandable that Sera ended up finding it pleasing.
+
+As expected, he was tired today, so he had come to the security personnel’s room as soon as he left his luggage at home.
+
+This was also because Yuu had a business with these girls.
+
+「Well then, now that Kanako-san has returned, can I have a talk with you?」
+
+When he placed his hand on the small shoulder in front of him with a pomf, Touko stood up.
+
+Turning around, Touko had a somewhat reluctant look on her face.
+
+「T, thank you. Yuu-sama.」
+
+「You are welcome.」
+
+Yuu sat down on the two-person sofa placed on the opposite side of the shelves for visitors and faced Kanako and Touko who had taken their seats.
+
+「You see, I came here today to ask you two a favor.」
+
+「A favor, you say?」
+
+「Yes. I want to learn self-defense techniques from you two.」
+
+「「Huh?!」」
+
+Not only Kanako, even Touko showed a look of surprise on her face.
+
+What Yuu had in mind was his experience of meeting the delinquent girls when he went out to the town on his own.
+
+The other was his experience of getting dragged into a toilet stall when he went into the men’s restroom on the day he went to cheer for the tournament.
+
+As far as Yuu was concerned, those girls were worth having sex with, so both of these experiences were all right result-wise.
+
+And then, today, he met the members of the student council of Sairei Academy High School and was subjected to their unreserved approach.
+
+It was not like he didn’t like these girls.
+
+If anything, he would even love to personally ask out the president, Rinne, or Keiko aka Kate, whom he had met for the first time in a while.
+
+However, like the past precedent with Ichimatsu, there was guarantee that it would always be beautiful women who came after Yuu.
+
+He would like to be spared from getting attacked by ugly women who would make him want to run away at the first sight.
+
+In that sense, he thought learning some self-defense techniques would do him good in the future.
+
+「I would like to ask you one question.」
+
+Kanako, who had straightened up her posture, looked at Yuu and asked…
+
+「Yuu-sama, do you remember the contents of the 『Life Safety Guide for Boys』?」
+
+「The 『Life Safety Guide for Boys』?」
+
+「Yes. From what I heard, it is handed out to all boys when they graduate from elementary school.」
+
+He did feel like he had seen a booklet with such a name written on it in his desk drawer.
+
+As he reached back into his memory, it seemed that he had flipped through the contents of the booklet and read it briefly when it was handed out.
+
+Though, more than three years had passed since then, so he didn’t remember the details.
+
+「Hmm. I do remember reading it, but I don’t think I remember much about it.」
+
+「Well, I suppose that is just how it is.」
+
+Kanako gave a small sigh.
+
+There were probably few people who read it enthusiastically.
+
+Touko took over the talk.
+
+「It is written in the 『Life Safety Guide』, but even if you get attacked by a woman, it is not recommended to resist. As a rule, the only move you can use is to run away. On top of that, you ought to ask for help from your security personnel, guards, the police, or others around you.」
+
+「Huh… isn’t that…」
+
+「In case there is more than one sex offender, it is often premeditated and it can be difficult to resist or escape. Even if it is just a spontaneous solo attack, the other party is in a state of excitement, so if you thoughtlessly resist, it might result in injury or even loss of life in the worst-case scenario. The best thing to do is not to act without an escort and stay away from places filled with nothing but women.」
+
+「Ugh…」
+
+Both of these were things that Yuu had done.
+
+「Even so, Yuu-sama, do you still want to learn self-defense technique?」
+
+「Y… Yes. I do.」
+
+「In that case, you should look for a male expert…」
+
+「Can’t you two teach me?」
+
+「It, it is not that we can’t, but…」
+
+「If that’s the case! I think it would end up putting an extra burden on both of you, but please, I beg of you!」
+
+Three months had passed since his rebirth, but he still felt uncomfortable about being protected by women.
+
+The reason why Yuu wished to train his body as soon as he was discharged from the hospital or to have the bare minimum skills to fight was probably due to the instincts that he originally had as a man.
+
+Though, he was contradicting himself as he asked help from his security personnel, who were women.
+
+Having Yuu bow his head toward them, Kanako and Touko couldn’t refuse.
+
+「Neki.」
+
+Kanako showed a troubled look as Touko poked her with her elbow, but it wasn’t like she truly disliked the idea.
+
+「Well then, when shall we start? Tomorrow just happens to be Sunday, so… Ah, you have an appointment at 10:00 a.m., right?」
+
+Kanako muttered as she turned around and looked at the timetable.
+
+「Ahh! Now that you mention it…」
+
+Yuu remembered that Inui Rumiko, an official of the Ministry of Health, Labor and Welfare, had contacted them the night before yesterday.
 
 ●○●○●○●○●
 
-「Nghh, amm, hnn, nmm, chuu… chuu, slurp, puha, lick… lick… Ahn, hnn… Yuu-kun… so lovely… Nghh, auu… Ahn! No, my body is… melting away~~~」
+At 8:30 on Sunday morning, Yuu came to the Saitama Training Center of MALSOK, Kanako and Touko’s company.
 
-「Ah… Youko… Nghh, guh…」
+The purpose was to learn the basics of self-defense and how to carry himself in case he was attacked by a woman.
 
-「Ah… Ah… It’s so amazing… Yuu-kun, I love you… Nmm, chuu.」
+Though, since they needed time to travel to their next appointment, they could only stay there for about an hour at most.
 
-Yuu was holding Youko’s thin waist tightly with both hands as he thrusted his hips upward.
+When they went down to the basement, he saw a place that appeared to be a training area, half of which was a judo hall with tatami mats, and the other half was covered with low rebound mats that looked like it could be used for wrestling.
 
-With a melty look on her face, Youko was holding Yuu’s head in her arms, occasionally kissing him over and over again, and jerking her chin up and moaning as she could no longer hold back the pleasure.
+As expected, it’s early in the morning, so there’s no one here; so Yuu thought, but in fact, Kanako had called the day before and reserved the place for their use.
 
-「Can you see it? Youko. The part where we’re connected has become sopping wet, no?」
+Told to wear something easy to move in, Yuu was wearing the school’s designated short-sleeved gym clothes and shorts.
 
-「Umm… You’re… right…」
+However, as soon as the two saw it, they begged him to put on the top and bottom of jerseys that were in the training area.
 
-When she moved her body away slightly  from him and looked down, as expected she could not see the part where his penis entered her vagina, but she could see their lower abdomen glistening wet with sweat and love juices.
+Kanako was wearing a gray tank top with a white T-shirt on top of it and black leggings on the bottom.
 
-Since a while ago, their coupling tools had been making a loud, lewd, squelching sound as they moved.
+Unlike her usual pantsuit, the thin garment showed off the lines of her body well, so he couldn’t help but get captivated by the wonderful proportions of her body.
 
-Also, Kazumi, who had been watching the two of them engaging in the act up close, clung to Yuu’s shoulder, twisted her thighs together and began to play with her own secret place with her fingers, letting out hot breaths.
+「First, let me show you how it’s done! Yuu-sama, come at me!」
 
-「Thanks to your squirt, I’m sopping wet, Youko.」
+When Yuu stood on the judo floor after putting on the jersey, Touko, who was wearing a judo gi – moreover one with a black belt – said with pride.
 
-「To think Youko would cum so grandly.」
+She didn’t appear to be wearing an undershirt, so maybe she had her bra directly underneath it.
 
-「No… you two… don’t say that… ahn!」
+Though, regardless of whether she was wearing it underneath or not, the bulges on her chest were modest in size, so it didn’t seem like it would have much of an effect.
 
-「It’s okay. If anything, for both of you to feel so much pleasure even though this is your first time having sex, it makes me very happy as a man.」
+「Ah, hey…」
 
-Partly because they had ended up spending so much time masturbating in the last month as they thought about Yuu, now that they finally got to do the real deal with him for the first time like this, the two ended up becoming more debauched than expected.
+「Alright, here I come!」
 
-Having heard beforehand that women with too strong sexual desires were disliked by boys, they had always kept in mind to carry themselves in a little more ladylike manner, but it crumbled easily in front of Yuu.
+Kanako was about to stop him, but Yuu, who had become eager to go at it, drew closer to Touko from the front as he tried to do Kumite (literally grappling hands, a technique from karate).
 
-Their bodies reacted more sensitively than they had expected, and their rationality ended up melting away in a matter of seconds.
+155 cm tall, Touko was particularly petite among the women of this world.
 
-They were like females in heat.
+According to Kanako, despite her appearance, she was a specialist in anti-personnel combat, but combined with a face so young that she could pass for a middle or high school student, she totally didn’t look like someone qualified to serve as a security personnel.
 
-And yet, when Yuu showed them a pleasant smile, their favorability of him was as good as shooting through the limit.
+He had actually seen Kanako in action, but he had never seen Touko fight until now.
 
-「Haa, haa… I’m about to cum too, Youko. Just like this, I’m going to cum inside you. That’s okay, right?」
+That might have been precisely why he had let guard down.
 
-As far as Youko was concerned, the only answer she could think of was Yes.
+The moment Yuu thought he had had the hand he had carelessly outstretched grabbed, he felt as if Touko’s figure disappeared.
 
-「L, let it out! Your semen, I want you to let out a lot of it inside me, Yuu-kun! Kyaun! Your dick, it’s so amaziiiiiing!」
+In fact, with a movement so fast that it couldn’t be followed by the eyes, she had gotten in close to Yuu’s chest and gotten into position for a throw.
 
-「Guh, Youko, ohh, ooh!」
+In an instant, as soon as he thought that his body had floated into the air, he felt an impact as his butt landed on the tatami mat, and he found himself getting subjected to Hadaka-jime (naked choke) on the neck from behind.
 
-The feeling of being stroked by the vaginal walls, which were clamping down on him be it when he pulled out or pushed in, led Yuu to ejaculation.
+Though, since she didn’t seem to be trying to choke him for real, it didn’t hurt, but he couldn’t help but get stunned. Most likely, I’ve been hit by some kind of hip throwing technique; so Yuu thought.
 
-Getting closer and closer to that moment, they hugged each other tightly, and Yuu thrust his hips up furiously.
+「Mufufu. Yuu-sama, I got you.」
 
-「Y, Youko, guh! I’m cumming!」
+「A, ahaha. You got me.」
 
-「Ahh, ahn! Me too, nghh, ahn… aaaaaaaaaaaaah!! C, cumming!!!」
+But the smug act of Touko, who was more like hugging him from behind rather than choking him, had to end there.
 
-*Splurt, splurt* At the same time as a large amount of semen was poured into her womb, *splash, splash* Youko reached climax and squirted grandly, soaking Yuu’s lower abdomen once again.
+「Hey!」
 
-●○●○●○●○●
+Thwack!
 
-Currently, in front of Yuu, Youko was standing on the left and Kazumi was standing on the right side with their hands pressed against the door, sticking their buttocks out a little and exposing their bare lower bodies.
+「Ouch!」
 
-The space was too small for the two of them to stand side by side, so they were pretty much in a state of sticking close to each other, shoulder to shoulder.
+When Yuu turned around after noticing that Touko had let go of him, he saw Touko holding her head with tears in her eyes, seemingly to have had a fist dropped on her head by Kanako.
 
-Perhaps in part because they had been training their bodies through athletic activities since their middle school days, they boasted young, toned figures and plump, shapely buttocks, which aroused Yuu’s worldly desires.
+「What would you if Yuu-sama got injured!」
 
-Not only from the front, even if you looked at them from behind, the two of them were overflowing with charm.
+「I, I’m sorry.」
 
-Their legs were slightly spread apart, and a white, muddy, though somewhat transparent, lewd juice was trickling down their thighs from their vaginas.
+After that, through Yuu’s mediation, Kanako’s anger somehow subsided and they decided to start over from the very beginning.
 
-As they took a break, Yuu sat on the toilet seat with both of them sitting on his laps, but then a thought suddenly occurred to him and he made a request to the two, saying 「Please let me take a good look at your behinds.」
+「When she was in high school and at a vocational school, she was at the national level in the lightweight judo division, after all. That body movement is not something that you can learn overnight.」
 
-Complying with that request of his, the two turned their bare buttocks toward him and begged Yuu for his penis, so unable to resist it, he stood up. His crotch had also stood up at the same time.
+「Well, that’s certainly true.」
 
-Spreading his arms out from the middle, he held the two of them in his arms, brought their bodies close to each other, and forcefully squeezed his hard meat rod in between their buttocks.
+「We have limited time, so today is more of a quick introduction to self-defense, or perhaps an emergency lesson on the basics. Let’s see… for example, in cases where the opponent is alone…」
 
-「「Ahn!」」
+「What should I do if I were suddenly restrained from behind and got my mouth covered?」
 
-Both Youko and Kazumi were startled by the hard penis touching their buttocks, but in unison, they turned to Yuu and showed a yearning look on their faces.
+「From behind?」
 
-「Yuu-kun, I want you… to quickly, put your dick into me…」
+What Yuu had in mind was the time when he got dragged into a toilet stall at the kendo tournament.
 
-「M, me too, I kinda want you to put it in me again!」
+If the other party had been a gorilla-like woman, he might have put up a serious resistance, but he didn’t think he would be able to win against her in terms of strength. In that case, what to do?
 
-「No. You just had Yuu-kun pour his semen into you, didn’t you, Youko?」
-
-「I mean~」
-
-「Fufufu, both of you are cute and have nice figures, on top of that you’re very naughty, which is nice.」
-
-As Yuu stretched his back and brought his mouth closer, the two twisted their necks and competed to take his lips.
-
-First of all, he kissed Youko on the left side, and then Kazumi right after.
-
-As he kissed the two alternately over and over again, he licked their lips with his tongue, and as he did so, the other party also brought her tongue closer toward his, and they began to twine their tongues together.
-
-It was on the level that every time Yuu turned his face to the left or right, a string of drool would be drawn and fall down.
-
-After indulging himself in the oral pleasure to his heart’s content with both of them in such a manner, Yuu shifted his hips to the right side, in other words, to Kazumi’s buttocks.
-
-「This time, it’s Kazumi’s turn.」
-
-「Ahaan. I’m so happy!」
-
-「Take it.」
-
-「Aahn! It came into me! Yuu-kun’s dick… Ahn… so good!」
-
-Even though she had just gotten accustomed to Yuu’s penis during her first experience, Kazumi’s vagina was still showing resistance as if it was trying to push back the invading foreign object.
-
-There, he persistently made his way through it and completed the penetration all the way to her deepest part.
-
-「Ahh, hnn! As I thought… It’s so amazing. It’s reaching all the way… to my deepest part.」
-
-「Kuh~. As I thought, inside of you is so tight, Kazumi. But I think I can move better than before. I’m going to go at it hard, okay?!」
-
-Yuu started to pump in and out of her with big strokes.
-
-*Squelch, squelch* As it sucked the long-awaited meat rod deep into it, Kazumi’s vagina drooled with delight and began to make a loud, wet sound.
-
-Each time Kazumi was vigorously poked in the deepest part of her vagina, she jerked her chin up  and moaned with her tongue sticking out.
-
-「Ahh, ahn, ahn, ahn! Yuu-kun… Yuu-kun! It feels… so good! Hiin, ahh, nghh.」
-
-「Ahn~. How nice. Hey, Yuu-kun! Quickly put it in me, too.」
-
-Finding Youko adorable as she begged him while shaking her buttocks slightly, Yuu patted her on the head with his left hand, before then slowly moving his hand down from there to her back and then to her buttocks, and grabbed her tightly there. Rubbing her vaginal opening with his fingers, he inserted his middle finger deep inside her.
-
-「Hiun!」
-
-「Hold on a sec, okay? I’m going to put my dick into you two in turns. Let’s see, let’s take turns each time you cum.」
-
-「Ufufu… Got it. Looking at how Kazumi is doing, I think we’ll take turns soon.」
-
-「Noo… I, I’m still fine, so…ahn!」
-
-●○●○●○●○●
-
-Smack, smack, smack!
-
-Every time Yuu slammed his hips against her buttocks, a pleasant sound echoed through the toilet stall.
-
-「Ahn, ahn, ahn, hiin… Hii, hiin! I’m cumming… even though… I don’t want to cum yet… Ahh, hnn! I can’t… hold it in anymoreeee.」
-
-Letting out coquettish cries as she dropped drops of sweat, drool, and love juice on the floor, Kazumi was at the mercy of the upward thrusts of the manhood penetrating her lower abdomen.
-
-Her hair, which had been neatly weaved into braids, had ended up becoming completely disheveled after being shaken around so much.
-
-Sticking his upper body close to her back and holding her breasts tight with his right hand as he fondled them, Yuu made a sharp upward thrust all the way to her deepest part, and this time, he switched his movement to a circular one.
-
-「Ahiii! That’s… not good… Ahh! Ahh, ahh, ahh, aaaaaaaaaaaah! I, I, I’m cumming~~~!!!」
-
-As soon as Yuu saw Kazumi arching her body back, he pulled out his penis with a sticky pop.
-
-「Alright, this time it’s Youko’s turn, so get some rest, Kazumi.」
-
-He lightly slapped her buttocks, but Kazumi, who was pressing her face against the door, didn’t seem to have the leeway to say anything back.
-
-Pulling out his finger, which he had inserted into Youko’s vagina, and licking the liquid that had covered it down to the base, Yuu moved a little to the left side with a bold smile on his face. He positioned himself at the center of Youko’s buttocks.
-
-「Sorry to keep you waiting, Youko.」
-
-「Aahn… Yuu…kuun~」
-
-As if the climax had ended up getting transmitted to her from Kazumi given that their bodies had been in close contact with each other, Youko turned around and looked at Yuu with a flushed face.
-
-When he put the glans into her wet, shiny, and twitching chasm, which seemed to have been eagerly waiting for his penis, the well loosened secret place slipperily swallowed it.
-
-When most of the glans had slipped into her vagina, he was faced with resistance by the vaginal flesh, but then, he penetrated it by force.
-
-「Ahh, huh?! Nghh… Hii, hii, hiin! Yu… u… ku… W, wait… Ahh, hiin!」
-
-「There you go, all the way to the deepest part… have I come!」
-
-「Ahh~, ohh, ohh, ooooooh… Ahh, hii… Hnn, hnn, nghh~, hnn…」
-
-「Hmm? What’s wrong, Youko?」
-
-The moment he finished the insertion and penetrated her all the way to her deepest part, Youko arched her body back in the same way as Kazumi did a moment ago. As if trying to hold on to something, she raised both of her hands and scraped her nails against the door.
-
-「By some chance, did you cum?」
-
-「Ha!」
-
-「You cum, didn’t you? Kufufu… We’re taking turns then~」
-
-Apparently, Youko’s sensitive body had ended up learning portio-cumming during her first experience, which was unusual, and it seemed that even now, she ended up coming as she got poked there.
-
-「N… noo… So suddenly, I’ve never experienced something like this before! With a gush, something hot suddenly welled up from the depth of my body… and I had no time to hold it in…」
-
-Her face beet red, Youko was in a total panic.
-
-「Fine. I’ll feel sorry if we take turns here, after all. I’ll give you a one turn freebie. I wonder if you’ll be able to hold out a little longer until your next cum?」
-
-Saying so, Yuu started to pump in and out slowly.
-
-「Ahn, thank you, Yuu-kun… Hnn, hnn, hnn, auu! But, the good feeling is… never stopping! Hyaan! I feel like… I’m going to cum again!」
-
-●○●○●○●○●
-
-The moment they came, both Youko and Kazumi clamped down on Yuu so hard that it felt as if they were trying to squeeze the sperm out of him, but despite that, he had been able to endure it, which was probably because he had ejaculated twice and because he pulled his penis out immediately and paused for a moment.
-
-If he had continued to shake his hips as he was, he might have ended up coming much earlier.
-
-Even so, as he penetrated the two alternately over and over again, the urge to ejaculate was building up inside Yuu.
-
-「Ah, ahii, hii, hii, hiin! Hii, hii! I’m going to cum… again! Noo, Yuu-kun’s dick, is too amazing… I can’t stand it… Ahh, ahn! That place is… cumming, cumming, cumming!」
-
-Still spreading his arms to hold both of them together, Yuu was shaking his hips against Kazumi.
-
-Kazumi, who was being pounded hard from behind, was in a state where she could barely hold up her body, which was on the verge of collapsing, by pressing both of her hands against the door.
-
-「Guh… I, I’m also… going to cum! T, to finish it off… I want to cum into your mouths.」
-
-「Y, yes. Sure, Yuu-kun.」
-
-Kazumi, who had just come, seemed to have no leeway to respond to him, but Youko twisted her body and nodded with a smile.
-
-「Guh! I’m already!」
-
-After nailing Kazumi’s buttocks a few more times, Yuu hastily pulled his penis out.
-
-Then, as if having been waiting for that moment, Youko lowered her body, clung to Yuu’s waist, and held his penis as she sucked on the glans.
-
-As soon as she turned around in a hurry, Kazumi also began to suck on his penis.
-
-Getting their heads stroked by Yuu, who was standing straight, the two of them sucked on his penis lovingly.
-
-It was slippery with love juice from both of them, but they didn’t seem to mind.
-
-「Haan… your dick is, pulsating, so amazing…」
-
-「Ahh, kaha… H, here I… come…」
-
-「Slurp, chuupa… Come, Yuu-kun…」
-
-「Ohh, oooh! I’m cumming!」
-
-Urged by the movement of their hands and tongues, *splurt* his semen spurt out vigorously.
-
-The semen went into the wide-open mouths of Youko and Kazumi, who had been waiting for it, and when they swallowed it down in a single gulp, more of it was continuously poured all over their faces, including the tips of their noses, cheeks, and chins.
-
-「Amm, Yuu-kun’s sperm… so superb.」
-
-「Aahn, there’s so much of this… thick and hot stuff…」
-
-For Yuu, this was his third shot, but partly because he had held it in for an extended period of time, he felt like he was shooting out more semen than usual.
-
-Both Youko and Kazumi were savoring it in a dreamy state.
-
-●○●○●○●○●
-
-「Yuu-kun, are you okay with the bus time?」
-
-「Err, you see, there are some classes that are having celebratory party today, so I should still have plenty of time to catch it.」
-
-「I see. Thank goodness.」
-
-After putting their clothes back on, the three of them walked down the empty hallway, hand in hand.
-
-As they drew closer to the first school building, they could hear the faint sound of happy voices.
-
-The celebratory party held by the classes that had won first place in their grade was probably still going on.
-
-Unfortunately, they failed to win first place, but for Youko and Kazumi, the reward time they had in the gym storage room as well as the fact that they were embraced by Yuu a short while ago had turned into the most treasured memories of their lives.
-
-「I’ll be on my way then.」
-
-Walking through the courtyard, they parted at the halfway point along the connecting passageway.
-
-From there, Yuu planned to go back to his classroom, the boys’ class in the second school building.
-
-「Yes. Thank you for today.」
-
-「Really… It’s on the level where we can never thank you enough.」
-
-「Hahaha. Likewise, I’m glad I was able to spend a wonderful time with you two.」
-
-「「Yuu-kun!」」
-
-Both Youko and Kazumi didn’t want to let go of the hand they were holding and wanted to stay in touch with Yuu all the time.
-
-But they knew that that wouldn’t be possible.
-
-「I’ll see you tomorrow or next week at school.」
-
-「Be careful on your way home.」
-
-「T, then… bye-bye.」
-
-Letting go of their hands, Yuu waved at the two and started walking towards the second school building.
-
-The two of them sent him off at that spot until they could no longer see Yuu’s figure.
-
-Youko, who had been facing forward, turned her eyes toward Kazumi.
-
-Perhaps sensing that gaze of hers, her eyes met Kazumi’s.
-
-「Hmm? What’s wrong, Youko?」
-
-「We met Yuu-kun when we went to observe the basketball club in April, and we’ve gotten close with each other through the boys-girls social events that have been held up until now, right?」
-
-「Yes. We were also in the same group during the new students orienteering event and he cheered us on at the inter-class ball game competition.」
-
-「You and I have always been together with Yuu-kun, haven’t we?」
-
-「Yes, we have always been together.」
-
-Youko quietly held out her hand.
-
-「Youko?」
-
-「I think I’m really glad that I became friends with you when we entered high school, Kazumi. If possible, I even want us to remain friends until we graduate.」
-
-「I, I think so… too!」
-
-「Fufufu. That makes me happy. In that case, you see, let’s do our best together in regard to Yuu-kun, too!」
+「I guess we’d have to actually try doing it! You play the attacker role, Kanako-san.」
 
 「Huh?」
 
-「I think there is probably someone else whom Yuu-kun loves the most. If we go by the rumor, it’s the student council president, I guess? But, you see, don’t you think we’re definitely the ones in the lead among the first-year students?」
+Turning his back on her, Yuu said to the bewildered Kanako.
 
-「Is, is that so…」
+「U… Umm…」
 
-When she was with Yuu, Kazumi tended to get obsessed with him and show some assertiveness, but she was a meek person by nature, so she didn’t quite have the confidence to affirm it.
+「Now, we don’t have much time, so come on!」
 
-「Yes, it is, for sure.」
+「Haa.」
 
-In contrast to Kazumi, Youko’s attitude was overflowing with confidence.
+Having no choice, Kanako moved closer to Yuu’s back.
 
-「For now, it’s fine even if we’re not his number one. But, during the period of time until we graduate, I think it would be nice if you and I could secure a place by Yuu-kun’s side. Don’t you think so too, Kazumi?」
+「Try to do it like you’re restraining me for real, okay? And then, Touko-san, please tell me what to do in such a situation.」
 
-「I, I! Yes, I want to be by Yuu-kun’s side!」
+「Uu…」
 
-Getting asked by Youko, Kazumi boldly nodded her head in agreement.
+Kanako wrapped her arms around Yuu from behind in a timid manner.
 
-「There are a lot of girls who like Yuu-kun, so you see… I think there will be no shortage of rivals from now on, too. As such, what do you say about teaming up with me and forming a united front?」
+Even she couldn’t hide her nervousness.
 
-「A united front?」
+To protect Yuu, there were times when she had to stand close to him and ended up touching his body accidentally.
 
-「Yes. Let’s cooperate with each other in regard to Yuu-kun.」
+Even when that happened, Yuu never showed any sign of hating it, and there were even times when he personally held her hand when we were riding in the car.
 
-「I see.」
+But hugging him from behind was too much stimulation.
 
-「But in return, stop stealing march on me like you did earlier, okay?」
+Yuu turned around and looked at Kanako with a smile on his face.
 
-「I, I get it, I’m sorry, okay? From now on, I’ll ask you to join us in such a case, Youko.」
+「You can, hold me tighter, you know?」
 
-「Likewise.」
+「Hyah… Yes.」
 
-「Yes.」
+Moving both of Yuu’s arms to the front, Kanako stuck close to him and hugged him tightly.
 
-The two returned to their own classroom as they talked amicably in such a manner.
+Kanako was someone who guarded him on a daily basis, so for Yuu, rather than restrained, it felt more like he was being protected.
 
----
+Moreover, her ample breasts were pressed against his back so hard that they were getting squashed, so he was feeling delighted inwardly.
 
-## Chapter 80 - Sairei Student Council’s Visitation! (1) ~Visitors~
+On the other hand, as she smelled Yuu’s refreshing scent up close, Kanako’s heart wouldn’t stop pounding and her expression threatened to loosen up, but given the fact that Touko was standing right in front of them, she managed to hold it together somehow.
 
-Saturday, the day after the June school event, the inter-class ball game competition – moreover this year, for the first time, all boys participated in the event – had ended without incident.
+Looking at the two with half-closed eyes, Touko opened her mouth.
 
-After the classes, which were only held half a day, were over, Sairyou Academy welcomed the after-school period as usual, but the school building was willed with giddy buzz, perhaps feeling a sense of liberation as the weekend was upon them.
+「If you get caught by a large woman like Neki like that, it won’t be easy to shake her off.」
 
-However, the state of the student council office was the complete opposite, as they were about to welcome a moment of tension.
+「Yeah… You’re right.」
 
-「T, they’re here!」
+Although she didn’t put so much strength into her hold that it felt painful, it was true that he was getting firmly restrained by it.
 
-The one who shouted so as she violently opened the door with a bang was the second-year student serving as treasurer and secretary, Ishikawa Eimi.
+Yuu also knew it was impossible to move his arms.
 
-Under normal circumstances, Hanmura Riko, the vice president, would have rebuked such ill-mannerism, but she merely sighed heavily as if to say that what was to come had arrived.
+「But if you can at least move from the elbows down, there is something that you can do.」
 
-The student council president, Komatsu Sayaka, stood up and looked out the window.
+Touko moved closer to Yuu from the front and took hold of his right hand without hesitation.
 
-Close to entering the rainy season, the sky was gloomy and cloudy, looking as if it would start raining at any given moment.
-
-She could not see it from the window of the student council office since the school building was blocking the view, but two blackened luxury sedans had already been parked in the visitor parking space near the entrance to the administration building.
-
-And Eimi had ascertained that girls in school uniforms had gotten off one after another from the rear doors, which were opened by the black-suited chauffeurs, and headed in their direction.
-
-Likewise, Riko stood beside her and looked out.
-
-「What about the welcoming?」
-
-「Their president has been here before, so…」
-
-「I see.」
-
-「At least it will let them know that they are not welcome here.」
-
-「Fufufu. You sure are stubborn, aren’t you, Sayaka?」
-
-「I mean, you get it, don’t you?!」
-
-「Yeah. I know. They should be aware that they are uninvited guests, yet they came nonetheless.」
-
-Watching the two from behind with an anxious expression on her face was Eimi.
-
-「As expected… Are they influential people? Umm… The people in the student council of Sairei Academy, I mean.」
-
-Riko turned around and shook her head.
-
-「No. I believe they are just regular high school students like us. Some of them seem to be a part of high society or have some biased ideology, though. It has been ten years since a friction occurred due to the coeducation-related matter, and although as sister schools, we have distanced ourselves from each other a little, we have a very normal relationship. It is just that, the problem is when boys are involved…」
-
-Riko, the vice president that was originally in charge of public relations, had met them last year.
-
-Sayaka, the president, also seemed to have a personal acquaintance among them, but right now, she continued to maintain her silence.
-
-The two’s gazes were pointed in the direction of the waiting room.
-
-At that moment, Yuu was in the waiting room.
-
-Having heard that the student council of the sister school, Sairei Academy, was coming today, he was interested in them, but at the request of Sayaka and Riko, it had been decided that he would only listen to the talk from the waiting room.
-
-Apparently, they did not want to let them meet Yuu.
-
-This, too, was probably due to the unsavory rumors he had heard before about the student council of Sairei Academy.
-
-A few minutes later, a calm and mature female voice could be heard, but it seemed that she was not a member of the student council, but someone who had come to inform them that they would be arriving shortly.
-
-Upon hearing this, Sayaka and the others, however, did not go outside but waited in the student council office.
-
-After a few more minutes passed, they could hear the voices of several girls drawing closer, exchanging words in a whisper all the while.
-
-「Good day. It has been a while, isn’t it, Sayaka-san?」
-
-「Mm.」
-
-「Still… For you to not even welcome us even though we had taken the trouble to send a herald, how rude of you. Do the people of Sairyou not know what etiquette is?」
-
-「It is your side that has come uninvited even though it would have been fine even if you didn’t come, no?」
-
-Yuu, who was in the waiting room, could hear the sound of footsteps as people came in one after another.
-
-They were about 5 or 6 in number.
-
-The one who made snide remarks in a somewhat high-pitched voice was a member of the student council of Sairei Academy who had come to visit, and the one who responded in a low voice was Sayaka. Maybe she was her personal acquaintance?
-
-Before their side could give them permission to sit down, he could hear the sound of chairs being pulled out without permission.
-
-They certainly seem like pushy people; Yuu thought as he listened from his hiding place.
-
-「Are there only the three of you?」
-
-「Yeah, a certain situation arose last winter and two members ended up quitting, you see. Since then, the three of us have been managing somehow.」
-
-「Hmm? But according to what we heard…」
-
-「Anyway! Let’s get on with the talk at once!」
-
-As things stood, they probably already knew about Yuu, but Riko seemed to have cut off her words of suspicion.
-
-First of all, Sairyou’s side completed a brief self-introduction.
-
-Next was Sairei’s side.
-
-「I am the one serving as the student council president of Sairei Academy High School, Mitsuse Rinne. Nice to meet you. Though, I have met Sayaka-san many times before, and… the vice-president, Hanmura-san? We have met once, have we not?」
-
-「Yes, we have.」
-
-She spoke in a kind of noble daughter-like manner.
-
-It was the first time for Yuu to hear that manner of speaking in real life, not in fiction.
-
-「Ni hao. I am the vice president, Li Weifei, a third-year student. Nice to meet you.」
-
-「Hello~. I’m Oomori Norika, also vice president. Thank you for having me today~.」
-
-One of the vice presidents seemed to be of Chinese descent, judging from her greeting and name. The other one had a somewhat slow manner of speaking.
-
-The treasurer and secretary, who introduced themselves after the president and vice-president, gave off a very ordinary impression.
-
-The president and vice president seemed to be in their third year, and the treasurer and secretary in their second year.
-
-Just as Yuu thought that was the end of it, 「Actually, she is still a first-year, but there is a student who is helping us as a candidate for the next student council officer. It is a great opportunity, so I have brought her along.」
-
-She must have been prompted to do so.
-
-Along with a rattling sound, the sound of someone getting up from their seat could be heard.
-
-「Hello, my name is Kate Grimwood. Please take care of me.」
-
-She introduced herself in English in a clear voice, followed by some words in broken Japanese.
-
-A foreigner who was studying abroad… no, if she was a candidate for the next officer of the student council, maybe she was a foreigner who was naturalized not too long ago.
-
-However, when Yuu replaced the name that he had heard, 『Kate Grimwood』, with the alphabet in his mind, he felt that he had seen it before.
-
-He believed that was…
-
-「There is another member, a boy, in your student council, is there not?」
-
-Just as the self-introductions seemed to be over, someone from Seirei seemed to speak her mind.
-
-「Huh… No, he’s… umm, he’s just someone we’re employing as a temporary helper.」
-
-「No way that is true. From what we have heard, he has been actively participating in meetings for boys-girls exchange events.」
-
-「Just who in the world have you heard such a thing from…」
-
-True enough, Yuu joined the student council mid-April, and since May he had been showing up at meetings with the club representatives and meetings with the event executive committee.
-
-Ever since they knew that Yuu would be participating, the participation rate had gone up bizarrely, which made Sayaka and the others smile wryly.
-
-As they were by no means keeping it a secret, it was not surprising that one of them had leaked the information outside the school.
-
-In the student council office, Sayaka and Riko were still trying to cover it up somehow.
-
-However, if the other party was already aware of Yuu, there should be no need to hide.
-
-As far as Yuu was concerned, he didn’t wish to put Sayaka and the others in a tough spot.
-
-Standing up, Yuu opened the door and burst into the place where everyone had gathered.
-
-「I’m sorry! For being late.」
-
-「Ah!」
+「There is no need to shake off her hands by force, as you can simply break her fingers.」
 
 「Huh?」
 
-「Yuu-kun!」
+Still holding Yuu’s hand, she moved it up, made it hold the pinky finger of Kanako’s right hand, which was restraining him, and then twisted it to the other side.
 
-While everyone there was stunned, the one who waved her hand happily was Eimi.
+「Ou!」
 
-Unlike usual, the long desks had been arranged horizontally into two rows, and on the back side, Sayaka, Riko and Eimi were sitting side by side in that order.
+Kanako, unable to bear the pain, loosened the restraint of her right arm.
 
-The six girls on the front side, three girls per long desk, must be the student council of Sairei.
-
-Their uniform was similar in design to that of the current summer uniform of Sairyou Academy, which was a white sailor uniform with light purple lines and pink ribbons, and a light purple skirt.
-
-However, it was a one-piece type with the top and bottom integrated, and its distinctive features were its purple lines, which were darker than Sairyou’s, and red ribbon.
-
-「Dear me, the report that was supposed to be submitted by the end of the day took a surprisingly long time… It has only just started, right? Err, nice to meet you. It hasn’t been long since I entered this school, but I have been given the honor to assist everyone as a member of the student council since April, the name is Hirose Yuu. I look forward to working with you!」
-
-「Oh, my!」
-
-At the same time as Yuu bowed his head in salutation, the one who suddenly stood up was the girl on the far left.
-
-Coming directly in front of him, she was tall, about the same height as Yuu.
-
-Her long hair, which almost reached her back, was a gentle copper beige with reddish tints, and was wavy and fluffy from the middle, but the parts that hung forward from her shoulders were in ringlet curls.
-
-Her eyes, which were staring at Yuu, were large and bright and had double eyelids, and her lips, on which was putting her hand, were glossy with pink rogue.
-
-Partly because she was wearing a lot of make-up, she gave off sexiness that was not typical of a high school student.
-
-On top of that, her tight-fitting one-piece school uniform accentuated the contrast between her large, bulging breasts and round buttocks and her slim waist.
-
-If she were to change into a suit and tight skirt instead of her school uniform, she would probably look right at home as an office lady strolling through a 21st century office district.
-
-Looking at Yuu’s body from top to bottom as if she was licking it, she suddenly moved very close to him, reached out her fingers covered with colorful lamé nail polish and took his chin.
-
-「Hmm~… Quite the good find, is it not? Let’s take him home.」
-
-「Huh?」
-
-Just as he was at a loss for an answer after having such words said to him, her hand was flicked away with a speed unperceivable to the eyes.
-
-「Ow!」
-
-「Yuu-kun, this way.」
-
-Being pulled by the hand of Sayaka, who had come to his side before he noticed it, Yuu went around to the long desks at the front.
-
-As they brought out a spare pipe chair and opened some space between their seats, it was decided that he would sit between Sayaka and Riko, as if being guarded by the two.
-
-「They are the student council of Sairei, the president Mitsuse Rinne-san, the vice president Li Weifei-san and Oomori Norika-san, and then…」
-
-Before the members of the student council of Sairei Academy who were facing them could interject, Riko introduced them in rapid succession.
-
-「Lastly, first-year student Kate Grimwood-san… Right?」
-
-「Yes.」
-
-While everyone else from the student council of Sairei was staring fixedly at Yuu, for some reason, she alone was hanging her head, making her long blonde hair hang down, so he couldn’t see her face.
-
-「Umm, can you show me your face, please?」
-
-「Uh…」
-
-When Yuu nonchalantly said so, she choked on her words.
-
-As if having no other choice, she raised her face and brushed away her hair a little with her fingertips, but although he could now see one of her eyes, she continued to look away from him.
-
-Sporting a somewhat oval face, she had sharp eyes and well-defined features.
-
-They said it was difficult to distinguish a foreigner’s face, but if she was such a beauty, there was no way you would be able to forget her, as expected.
-
-In his mind, Yuu tried to make her wear a red jersey instead of her school uniform.
-
-「Ah! It’s you, Keiko-san!」
-
-「「「Huh?」」」
-
-「Keiko? Not Kate (Keito)?」
-
-「Yuu-kun, do you know her?」
-
-「Well, it was brief, but I’ve met her before… Hahaha.」
-
-Before the talk could begin, the room was enveloped in a bit of mayhem.
-
-●○●○●○●○●
-
-「As such, when I was at the threat of getting tangled up with some ill-natured delinquents, she and her friends gave me a helping hand.」
+「See.」
 
 「I see.」
 
-「Heh~」
+「There are also many people who dig their nails into the back of their assailant’s hands when resisting, but in fact, it hurts quite a lot when you dig your nails into the crescent parts of their fingernails. Do you want to try practicing it?」
 
-「How unusual. To think Kate would interact with a boy on her own accord.」
+Maybe she was trying to pay her back for the fist drop she had given her earlier.
 
-「No, that time, my comrades just arbitrarily…」
+It seemed that Touko had done it without reservation, and Kanako was seriously in pain.
 
-He referred to the day when he went out to the town on his own.
+Nevertheless, in the name of teaching Yuu, Kanako couldn’t get mad at her either.
 
-In the middle of it, the fact that he was cross-dressing was found out, and after being chased by a group of women, he was taken to a coffee shop on a back street that was the hideout of the Red Scorpions, where he mingled with four delinquent girls.
+「Err… No, I get it, so it’s fine. More importantly, Kanako-san, are you okay?」
 
-The blonde-haired, blue-eyed girl in a jersey who called herself Keiko alone did not join them, but she gave him a ride home on her bike.
+「Y, yes. I am okay. Something like this is nothing.」
 
-As far as Yuu was concerned, there was no way he could tell them the whole truth, so he told them the story of when they met while dramatizing the points that were fairly safe.
+As Yuu held her hand worriedly, Kanako put up with it and managed to show him a smile.
 
-And she did nothing but nod her head, hardly interjecting.
+Next, Touko stood right next to Yuu as he stood face-to-face with Kanako.
 
-「When we were about to part ways, I remember you saying that your name was Kurimori Keiko, though~」
+This was a case where he got attacked from the front in an indoor passageway or a narrow alley.
 
-「Ah~… T, that was, umm… Yes! It was embarrassing, so I gave you a false name…」
+「The human body has certain vital areas that cannot be trained. For example, the eyes, temples, and cervical spine. But it is difficult to attack the face when dealing with a tall woman like this.」
 
-「I see. Then your real name is Kate, right? It certainly suits you better.」
+Today’s Touko was unusually talkative.
 
-As Yuu stared at her, Keiko, or Kate, nodded her head in a begrudging manner.
+「In case there is a height difference, the lower half of the body is easier to attack. For instance, the most well-known target, the groin…」
 
-「Still, Kate… You are actually able to speak Japanese fluently, are you not? When did you become so skilled in Japanese?」
+Touko pointed to Kanako’s lower abdomen.
 
-「No… That is, not true.」
+Her leggings were tightly wrapping around her lower body, and as he stared at her there, it didn’t not look like they were digging into it a little.
 
-「No need to go back to your broken Japanese at this point.」
+「If the kick to the groin hits well, the opponent will surely faint in agony. But in reality, by anticipating the motion of the kick, it will end up getting avoided easily. Yuu-sama, as a test, try kicking me.」
 
-「Yes.」
+「Huh…?」
 
-Maybe partly because the other party was an upperclassman from the same school, Kate showed an attitude like that of a borrowed cat, giving off an impression that was a little different from when he met her at the Red Scorpions hideout.
+「It’s all right.」
 
-However, her attitude as she looked away in a prickly manner when Yuu, who was happy to meet her again, looked at her with a smile was the same as the one he saw on that day.
+Although different from men who had a bull’s-eye down there, women’s groin could be a vital point, too.
 
-「We ended up side-tracking, but first of all, our side will go ahead and present our proposal, which is the purpose of our visit today. To re-establish the exchange events between the two schools…」
+As expected, he couldn’t help but hesitate to kick her there.
 
-「We refuse.」
+However, Kanako slowly moved closer to Yuu with her hands outstretched to the front like a zombie.
 
-Sporting hair that was cut short in a techno-cut style and combed down neatly into a seven-three.
+When the distance between them was shortened to about one meter, Yuu, having no choice, tried to kick her at the groin with his right leg, using the same trick like when kicking the ball in football, but not only did Kanako readily close her legs to stop his kick, she even put her hands on his shoulders.
 
-A skinny figure where no bulge could be seen from over her uniform at all. The tallest one among the six girls on the other side.
+「I got you!」
 
-And then narrow eyes that gave her a fox-like appearance, that was the vice president of Sairei named Li Weifei.
+「Ah… You got me.」
 
-Since a while ago, she had shown no smiles at all and her tone of voice was curt.
+The one-legged Yuu grabbed both of Kanako’s hands for balance.
 
-She was proficient in Japanese, but as she spoke, she seemed to have a little accent.
+Kanako showed a happy look on her face.
 
-Riko, this side’s vice president, also gave off a sagacious impression when Yuu first met her, but the vice president of Sairei gave off an even more inhuman coldness that reminded him of a machine.
+Coming to an understanding that the groin kick was a risky attack, Yuu and Kanako went back to square one and stood facing each other again.
 
-In fact, her not changing her facial expression at all even when she looked at Yuu was proof of this.
+This time, he decided to have them teach him effective counter techniques that could be easily performed even by amateurs with no martial arts training.
 
-And Riko had dismissed the words of that Weifei without letting her finish.
+One was the knee kick.
 
-Both vice presidents glared at each other with cold eyes.
+As it required less motion than the football kick Yuu did earlier, it was easier to hit.
 
-From Yuu’s point of view, rather than sparks flying about, it was more like a blizzard was blowing over the place.
+The other was the palm strike.
 
-「Oh my, so scary~.」
+It was an attack in which you struck the thick part of the palm near the wrist or the hard part at the base of the hand at your opponent head-on.
 
-The one who cut in in a teasing manner while brushing up her hair was the other vice president, Norika.
+If done well, it would allow you to inflict heavier damage that penetrated the internal organ of the attack target compared to a Seiken-zuki (karate punch) or punch attack.
 
-In contrast to Weifei, she had long, straight black hair that was cut to a certain, uniform length. Her bangs were thinly scattered and curled, making her forehead visible. She had a flamboyant facial feature with thick makeup that seemed to highlight her large eyes and mouth even more.
+The disadvantages were that it had a short reach, which could be scary if it missed, and even if it was successful, there was the risk of injuring your wrist.
 
-To Yuu, she was someone that reminded him of the women with uniform-length hair and tight-fitting clothes who flocked to the dancing platforms at discos during the bubble era.
+In combat, the basic approach was to aim at the tip of the nose or chin, but when used by amateurs in self-defense, it was also a good idea to aim at the chest, with the heart in mind.
 
-「Hah.」
+From Yuu’s point of view, it was similar to the image of a sumo wrestler’s tsuppari (thrust).
 
-The one who exhaled in a mocking manner was the president of Sairei, Rinne.
+「Now then, begin!」
 
-「Is there something funny?」
+「Practical training again?」
 
-This time, it was the two presidents who glared at each other.
+「Yuu-sama, it is okay. I have been training myself, so please come at me without holding back.」
 
-「The re-establishment of the exchange events between the two schools is something that has already been decided by the board of directors. Do you really think that the student council can reject it on its own discretion? Well… If you persist in your stubbornness in spite of that and don’t mind if the budget is reduced for the next school year onward, then…」
+「Umm. Then…」
 
-「…」
+Just like before, Kanako moved closer to him from the front.
 
-As a matter of fact, both Sayaka and Riko knew that it would be difficult to refuse.
+Getting caught would spell the end of him, so Yuu ducked to slip through Kanako’s outstretched hands and then extended his right hand straight with the palm facing the front. The target was her large overhanging breasts.
 
-Even so, it would be impudent of them to go along with the wishes of the Sairei’s side from the beginning, so they decided to express their refusal to their face.
+However, unable to shake off the perception that a man must not be rough with a woman, Yuu’s hand ended up losing its momentum in the middle of the move.
 
-「You say re-establishing the exchange event, but… how had it been done in the past?」
+Squish.
 
-The one who broke the mood that had begun to turn stormy was Eimi.
+「Ohh.」
 
-「According to the documents that were left behind on our side, it appears that the main points were interactions between clubs. Joint practices and friendly matches for athletic clubs, joint presentations for cultural clubs, etc. Of course, there were also elaborate events for the general students, such as karuta (Japanese playing cards) tournaments and amateur singing contests, depending on the year.」
+「Ahn.」
 
-「Heh~」
+Unconsciously, Yuu had grabbed her breast.
 
-The secretary from the other side explained while opening a file containing thick materials.
+However, it boasted such a size that even as he used his entire palm to hold it, he was still unable to hold the entirety of it.
 
-Unlike the president and vice presidents, who had strong characters, the treasurer and secretary, both of whom had similar semi-long hair, could probably be classified as refined beautiful girls among ordinary high school girls, but compared to those three, they inevitably gave off a plain impression.
+Amazing…
 
-*Clap* It was Rinne, the student council president of Sairei, who clapped her hands there.
+Even through the fabric, he could tell that they were springy and soft.
 
-「It is just that, it would be no fun to do the same thing we did 10 years ago. As such, we will gather talented high school students not only from the two schools but also from other schools in the prefecture and hold a glorious art exhibition, a luxurious and gorgeous art festival! It will surely turn into an event that will go down in history!」
+His spread fingertips sank into them once, but her breasts boasted such elasticity that they immediately pushed them back.
 
-With sparkling eyes, Rinne waved her hands in the air like a conductor and emphasized her points, but for some reason, the other members of the student council seemed to show no enthusiasm at the idea.
+Yuu rubbed them thoroughly in a trance.
 
-Did that mean it was something that she alone wanted to do personally?
+「Y, Yuu-sama… Ah… Ahn!」
 
-Riko leaned in and whispered to Yuu, who had no leeway to interject and had been doing nothing but listening to the talk.
+Kanako was bewildered as she suddenly got her breasts rubbed, but perhaps ending up finding it somewhat pleasurable, she let out a sweet cry without trying to make Yuu stop even after grabbing him by the shoulders.
 
-「The Nikko Group is a large business alliance centered around Nikko Automobile, one of Japan’s leading automobile manufacturers. It was originally a zaibatsu company founded by a former noble family, and she is a direct descendant of the founding family. In the automobile industry, it is a competitor of Sayaka’s company. On top of that, Nikko is actively engaging in cooperative activities with famous orchestras, theater troupes, theaters, etc., so she herself is also famous for her deep knowledge of music and theater.」
+●○●○●○●○●
 
-「I, I see.」
+The self-defense lesson came to an end after about an hour, and Kanako and Touko were in the middle of getting dressed.
 
-In the past, the nobility also had the duty of protecting the arts, and it seemed that even now, her family still had such a tendency.
+「Phew… it was harder to continuously maintain my reason than usual.」
 
-Which meant, she was the perfect person to be the student council president of Sairei Academy, where half of the students belonged to the art course.
+「True enough, there was a lot of physical contact this time. Talk about a perk.」
 
-「Now then, let’s put aside the dreamy ramblings of our president.」
+「That’s not what I’m talking about…」
 
-「You are right. Let’s talk about something more realistic.」
+Down to her underwear after taking off her top, Kanako looked at her own breasts, and after thinking about it for a while, she tried to touch them.
 
-「H, how cruel!」
+Even though she felt no emotion whatsoever when she touched them herself, she couldn’t help but be bewildered by the indescribable pleasure that had run through her body when they were rubbed by Yuu earlier.
 
-Shocked by the cold words of her friends, Rinne went *kiiiiii* as she bit her handkerchief.
+Seeing this, Touko also looked down at her modest breasts wrapped in a sex appeal-less white sports bra.
 
-The person in question might have been serious about it, but from Yuu’s point of view, it looked like a comedy skit.
+She couldn’t help but be surprised when she saw the look on Kanako’s face earlier.
 
-「When we discussed it among ourselves, we came to the conclusion that it would probably be more interesting if the two schools competed with each other rather than simply interacting.」
+If she were to get her breasts rubbed by Yuu, how would it feel?
 
-Instead of Rinne, who was still mumbling about arts being this and that, the one who proceeded with the talk was the vice president Weifei.
-
-「By competing, do you mean like an inter-school competition?」
-
-「That’s right.」
-
-「Even if you say competing with each other…」
-
-The response from the Sairyou side was weak.
-
-To begin with, as a co-ed school, they were already putting a lot of effort into their boys-girls exchange events, so the main reason was probably because they didn’t want to add even more extra work.
-
-However, it seemed that the vice president Weifei had anticipated this.
-
-Crooking her lips up, she was probably intending to show a mile, but her eyes remained narrowed, so it looked a little scary.
-
-「Since we are taking the trouble to turn it into an inter-school competition, I believe there should be benefit for the winner.」
-
-「Well, that is true, but…」
-
-「I want you to listen to the idea we have come up with. If Sairyou Academy wins, we will give your clubs permission to use Sairei Academy’s facilities.」
-
-「「「Huh?~」」」
-
-The three members of the student council of Sairyou let out a surprised cry at the same time.
-
-「Is such a thing possible?」
-
-「Of course, there will be a need to adjust the period, time, and scope of use, but it is a fact that we have some leeway in terms of P.E.-related facilities, so I believe there will be no problem.」
-
-「I mean~, compared to our cultural clubs, the athletic clubs in our school aren’t very active, after all. It’s on the level that there are even some clubs that are only in name, but are actually inactive, you know~. It’s only when the student council inspects them or when there is a tournament that they gather their club members in a hurry and try to cover it up, after all~.」
-
-The person in question is probably intending to say it in a serious manner, but because of her slow manner of speech and strange wiggly body language, it ended up sounding like it was no big deal.
-
-Compared to public schools, Sairyou Academy was better off in terms of facilities, but as a school with thriving athletic clubs, it would be desirable to have more sports facilities available for use.
-
-To cite an example, their baseball, softball, soccer, track, and rugby clubs were using the three fields in turn.
-
-The first and second fields, which were located within the school grounds, were one thing, but there were some clubs that were unable to use the third field due to facility-related matters.
-
-Even if it took time to travel to Sairei Academy, which was located in the neighboring city, the advantage of being able to secure a large practice space was great.
-
-「The offer itself is attractive, so I believe there is room for consideration. Now then, on the other hand, if Sairei wins, what would the benefit be?」
-
-「Of course, it is to invite the boys to come to our school. There is nothing else but it.」
-
-Weifei said as if it was only a matter of course.
-
-They must have already anticipated that matter.
-
-The expressions on the faces of Sayaka, Riko and Eimi hardened.
+Touko couldn’t help but be curious about it.
 
 ---
 
-## Chapter 81 - Sairei Student Council’s Visitation! (2) ~Let’s do our best~
+## Chapter 84 - Special Examination (1) ~Entrust your body to the flow of time~
 
-The first thing that began was a strong rejection from the Sairyou side, who were adamant that they could not comply.
+Going back in time, it was Thursday, the day before the inter-class ball game competition.
 
-Facing it, the Sairei side didn’t yield either.
+It was about 6:00 p.m. when Yuu got home that day, and unusually, they had visitors at such an hour.
 
-According to them, it was not right that Sairyou alone got to monopolize the boys just because it was a co-ed school. Since they were sister schools, there should be no harm in re-establishing the exchange events like they used to do and give their students the opportunity to come into contact with boys, too.
+It seemed that it hadn’t been long since they arrived, and the two visitors had just taken their seats.
 
-From the point of view of the Sairyou side, they were pushing their demand with a self-serving and forceful logic.
+Elena, who happened to be at home, and Sera, who normally would only come on the weekend, were also present.
 
-The heated argument, or rather fierce exchange continued, but the one that put a damper on it was a single remark from Kate, who had remained quiet the whole time.
+It was apparently a talk that was heavily related to Yuu as well, so as soon as he got home, he sat down on the sofa facing them.
 
-「The boy over there, as a boy, what do you think about it?」
+One of the visitors was Inui Rumiko, an official of the Ministry of Health, Labor and Welfare.
 
-With her blue eyes, she directed a stern, cold gaze toward Yuu.
+He met her at the general hospital when he went to do his first sperm donation, so it had been about two weeks since.
 
-「Hmm~」
+She was dressed in a business style with a white open-necked shirt and a tight navy-blue skirt, but her curvy body as male-instincts-stirring as usual.
 
-As the only boy in this room, Yuu was like the representative of the boys.
+The other visitor was an old lady… not sure if she could be referred to as such, but she was a woman that looked like she had reached her 60th birthday.
 
-With that in mind, Yuu couldn’t help but fall into thought.
+Her hair, which was more gray than black, was neatly bundled in an updo, and she wore rimless glasses.
 
-All-girls high school, it was a girl’s garden.
+She was dressed in a rather plain but flower-patterned shirt and a long pale purple skirt, and although she had a small build, looking at her good posture with her back straight, one could see her elegance.
 
-As a man with the values of his former world, it was a place that he would love to visit by all means.
+When her eyes met Yuu’s, she looked at him with a gaze overflowing with affection from behind her droopy glasses, which strangely made him feel a little warm.
 
-However, he knew that he was the only boy in this world who would have such a thought.
+「Yuu-sama has returned home at just the right time, so I will go ahead and introduce her to you. She is the chairperson of the Toyota Sakuya Memorial Foundation, Ichinose Hatsumi-san.」
 
-The sense of the general boys was different from Yuu’s.
+The woman called Ichinose bowed and opened her mouth.
 
-In contrast to girls that were overwhelmingly more numerous than them, boys, the minority, were as timid as herbivores.
+「As introduced by her, I am Ichinose.」
 
-「Well, you say inviting boys to your school, but given the current situation, I think there would be little to no boys who would want to go.」
+「B, by Ichinose, don’t tell me…」
 
-「Huh? I, I mean, you regularly hold boys-girls social events at Sairyou, do you not? In that case, letting them come to our school from time to time should also be…」
+Perhaps she knew her name, Martina had a look of surprise on her face.
 
-「That is only possible because Sairyou has been doing a lot of trial and error for the past 10 years since it became a co-ed school.」
+「Yes, as you might guess, I was given the pleasure to serve as Sakuya-san’s first partner.」
 
-Yuu knew from asking Sayaka and others.
+It was a well-known story that when Yuu’s father, Toyota Sakuya, was 10 years old – said to be shortly after entering the fifth grade – he shed his virginity with his homeroom teacher at the time.
 
-About how the seniors had been thinking and executing the events with consideration for the boys up until now.
+Even if the other party was a beautiful child, as expected, as a teacher, she couldn’t actively lay her hands on him, so when Ichinose, who was 25 years old at the time, was subjected to a fierce attack by Sakuya, who harbored a desire toward her unlike that of an elementary student, they began to gradually form a physical relationship.
 
-He emphasized this point.
+Otherwise, there was no way she would have been able to continue working as a teacher even after it was discovered that she had had sexual intercourse with an elementary school boy.
 
-「It hasn’t been long since I joined the student council, but I have seen with my own eyes how much attention has been paid not only by the student council, but also by our female seniors and classmates. It is absurd to suddenly want to be close with boys while ignoring the accumulation of such daily experiences.」
+This was because when she became pregnant, Sakuya boldly declared in front of the principal that he had impregnated her.
 
-「「「Yuu-kun!」」」
+The relationship continued while Sakuya was still in elementary school, and it was said that she gave birth to a boy and a girl.
 
-Starting with Sayaka, the three members of the Sairyou student council looked at Yuu with sparkling eyes, so he felt self-conscious.
+Although they were not bound in marriage, for Yuu, she was the mother of his oldest half-brother and sister.
 
-Hearing this, each and every member of the Sairei student council ended up falling silent, but it was Rinne, the student council president, who suddenly stood up with a bam.
+He learned all of the above from a TV special on the anniversary of his father’s death.
 
-「If that’s the case! If we appeal to the boys of Sairyou for the magnificence of art, which is the characteristic of our school!」
+「Nice to meet you. I am Martina, Sakuya-san’s 18th wife. This is my daughter Elena and my son Yuu. And then Sera, daughter of Suzanna, his 17th wife. She lives in Hokkaido, but she happens to have come here for a company training program.」
 
-There she goes again… The vice presidents and the rest of the members showed a look of exasperation, but surprisingly, it was Yuu who expressed his approval.
+Introduced by Martina, Yuu and the others greeted her in turn.
 
-「Hmm. That is… Perhaps, it may work.」
+Hatsumi looked at Yuu and the others with an amiable smile on her face, but when it came to Yuu in particular, she directed a gaze at him with a nostalgic and affectionate look on her face.
 
-「「「「Huh… Huuuuuuh~~~!!!」」」」
+「How curious. Even though they are different in appearance, in some ways, he looks like Sakuya-san in his younger days. I wonder why.」
 
-Looking closely, even Rinne, the person in question, was taken aback by his response.
+Hearing those words that she had muttered while placing her hand on her cheek as if she was talking to herself, Martina had a complicated look on her face, while Rumiko nodded her head as if in agreement.
 
-「Actually, there are quite a few boys who are interested in the arts and cultural activities, you see.」
+「Err, Ichinose-san?」
 
-What came to Yuu’s mind was Masaya, who had taken piano lessons since he was a child and was now a member of the concert band club.
+The one who broached the subject was Martina. She looked a little nervous.
 
-And Rei, who had an interest in and had taken up flower arrangement and tea ceremony as lessons.
+「Hatsumi is fine. Martina-san. What might it be?」
 
-Other than them, a lot of their classmates had also joined cultural clubs after entering high school.
+「Huh… Then, Hatsumi-san. I heard that you had a tough time after Sakuya-san passed away?」
 
-「Unlike our school, Sairei is a school specialized in arts and culture, right? In that case, if you can not only make a good display of that point and arouse their interest but also guarantee their safety, maybe there will a few boys who will think it should be okay to go and take a look.」
+It seemed that the same was true for Martina and the others in that not only were they in sorrow over the loss of their beloved husband, they were also faced with a tough situation, but they didn’t show even a fragment of it.
 
-「Oh, my! How wonderful!」
+Getting asked, Hatsumi humbly replied, 「Not as much as you who were his wives, but…」, as she showed a nostalgic look on her face.
 
-Sporting a radiant smile on her face, Rinne suddenly exposed her thighs and climbed over the desk, then dashed over to Yuu and grabbed his hand.
+「I believe it was about a month after Sakuya-san passed away. A lot of strange people came to our house, did they not~?」
 
-As her long copper-beige hair swayed softly, the scent of floral perfume tickled his nostrils.
+「Huh, but why?」
 
-「How about it? Boy, care to have dinner at our place tonight?」
+Yuu wondered.
 
-「No touching.」
+He had heard that the relationship between his father and Hatsumi had been severed after he graduated from elementary school.
 
-「O, ouch. Sheesh…」
+Considering that she had given birth to his children, maybe he had met her after that too, but it could be said that his father’s sexual conquest began in earnest when he entered middle school.
 
-The one who slapped Rinne’s wrist with a sharp sound and forcefully released him from her grasp was Riko.
+According to them, that was because even his father didn’t have it in him to impregnate elementary school girls, as expected.
+
+There, the one who interrupted was Rumiko.
+
+「When he was alive, Sakuya-shi was called many different names by the media and his fans. For example… From the fact that he had relationships and children with an unbelievably large number of women, the famous one is Sir Stud. From the fact that he actively formed relationships not only with Japanese but also foreigners, using sea as the metaphor for women, Supreme King of the Sea. And from the fact that he was the ray of hope for all women on the earth, there was even a one like the Lord of Salvation.」
+
+「Ha, hahaha… that’s amazing.」
+
+「Not only would he embrace you if there was an opportunity to, the chance of having a child was high. Even if you didn’t get embraced by him, his popularity appeared to be very great, so there might those who pretty much deified him.」
+
+「So, who were those strange people who came uninvited to Hatsumi-san’s house?」
+
+In response to Yuu’s question, Hatsumi and Rumiko looked at each other.
+
+It seemed that Rumiko would be the one to explain.
+
+「After Sakuya-shi passed away, several religious groups were established. The one who was deified and worshiped was, of course, Sakuya-shi. The names of the groups were taken from the titles of honor I mentioned earlier, such as 『Servants of the Supreme King of the Sea』 and 『Lord of Salvation Religion』. Among them, it seems that there were also cases where private fan clubs that had existed even before his death were taken over by fanatics. And then, it seems that there was a need to put a living person as a representative, or rather a position that served as their symbol, so…」
+
+「Suzanna and Emanuela told me about it. They said that in addition to people from the media, strange people also started to come to their houses, which was very troublesome, so they decided to move.」
+
+Martina, who was pregnant with Yuu, had gone into hiding early on, but it seemed that the wives who had remained at their original residence had also been visited by such religious groups.
+
+Though, partly because there was actually no hierarchical order among the wives, even if there were orders for their turns, it seemed that the groups were not obsessed with them enough to seek out the place they were moving to.
+
+Instead, it was Hatsumi who caught their attention.
+
+After all, she was Sakuya’s first woman, so she was perfect to serve as a symbol.
+
+「Dear me… It was just strange, you know? For them to capture a mere old teacher like me, calling me Queen or the Lord’s consort.」
+
+She might have been able to laugh about it now, but one could imagine how tough it must have been for her at the time.
+
+Among the new religious groups, the groups that called themselves the so-called Cult were not people with whom words would work.
+
+For the sake of their doctrine, they couldn’t care less about the convenience or inconvenience of others.
+
+If anything, they even had no qualm in committing criminal acts because they truly believed it was a good deed.
+
+According to the current time line, it was something that occurred several years later, but Yuu recalled that in his former world, a certain cult group had caused a terrorist incident that resulted in the death of numerous people.
+
+「Well, it ended up causing inconvenience to my work too, you see. So I asked for help from the government. I quit my job at the school and went abroad, mainly working to help set up schools in Southeast Asian countries. Then, exactly 10 years ago, I believe, I was invited to join the board of directors of the foundation I am currently working for, and decided to devote what little ability I could.」
+
+Then, the talk finally got down to the main business.
+
+「In the foundation, we not only collect and store all of Sakuya-san’s inheritances and documents, but also secure people related to him, such as his wife, lovers, and children. In addition to social gatherings and consultations that we hold on an irregular basis, we also send out a seasonal newsletter, so I believe it has been delivered to your place too, Martian-san.」
+
+「Aah… Yes, indeed. But…」
+
+It was the first time Yuu had heard about it.
+
+That was because except for the two she had shown in the photo, Suzanna and Emanuela, Martina had never mentioned any of her fellow wives or other children, and she had always kept quiet about the fact that there were such connections.
+
+With the same gentle smile, Hatsumi said to Martina.
+
+「I understand your concern, Martina-san. The foundation is a special organization, and we don’t allow any media coverage. As a rule, we keep our information non-public. Well, there are times when receive requests for cooperation from the government in matters relation to Sakuya-san, though.」
+
+Hatsumi looked at Rumiko.
+
+「We are conducting a special examination on all of Sakuya-shi’s children after they turn fifteen years old. Due to various circumstances, there are also those who do not undergo this examination, but Yuu-sama, the youngest child, happens to have become eligible for it, so we are thinking about asking Elena-sama and Sera-sama, who have not undergone it before, to undergo it together with him, too.」
+
+「An examination, is it? Is it different from the physical examination I had in April?」
+
+「Yes, it is. There will be a physical examination too, but if I have to put it, I believe the purpose will be to have you show us your psychological side.」
+
+Rumiko seemed to have prepared some pamphlets.
+
+However, the thickness of the one given to Yuu was different from the one given to Elena and Sera.
+
+Excluding the cover, Elena and Sera’s pamphlet was a double-sided one with two pages worth of contents, but Yuu’s appeared to be roughly five or six pages long.
+
+「Do the men receive more examinations, you know, in a lot of ways?」
+
+「Seems like so. Especially on sexual-related matters.」
+
+「Sexual… Will you be okay? To receive such an examination.」
+
+Martina was naturally apprehensive.
+
+In her mind, Yuu was probably still just an innocent 15-year-old boy.
+
+「Hmm. I think it’s going to be okay. There is also this psychological test thingy, so it sounds interesting.」
+
+Having flipped and scanned through the pamphlet, Yuu turned to Martina, who still had a worried look on her face, and answered with a smile to reassure her.
 
 ●○●○●○●○●
 
-At any rate, as a tentative proposal, if Sairyou won, they would be given certain rights to use the facilities that Sairei had (especially those related to physical education). If Sairei won, they would be given the opportunity to make an appeal and invite the boys to watch their regular summer recital. As for how many of them would actually come, it all depended on their appeal.
+After learning self-defense techniques from the security personnel, Kanako and Touko, first thing Sunday morning, Yuu headed for the Saitama University Hospital located in the prefectural capital.
 
-They settled with that. The detailed adjustments were to be discussed on a later date.
+They had been informed in advance, so they parked their car in the staff parking lot behind the main building.
 
-The next question was what kind of inter-school competition they would be having, and the meeting turned stormy once again.
+As expected, this, too, was probably to avoid the eyes of the general patients and their families.
 
-While the Sairyou side endorsed a match format for athletic clubs, the Sairei side insisted on a presentation format for cultural clubs.
+Surrounded by his security personnel, Yuu headed for the inconspicuous entrance for the staff, and found that two women had been waiting for him.
 
-In that case, why not have all the clubs compete? With that, they were about to come to a consensus, but then a question arose as to how they would decide on the winner of the cultural clubs’ presentations.
+「Yuu!」
 
-There, Sairei said that they could just call an expert in that field, but Sairyou was against it, saying that if it was an expert that had a connection with Sairei, there would be a problem with fairness.
+「Ah, big sis, big sis Sera! You arrived earlier than I expected. I thought I got here first.」
 
-Seeing that the discussion remained heated and showed no sign that it would come to a conclusion anytime soon, Yuu pulled his chair back and stood up.
+「W, well yeah… ahaha.」
 
-「I will go make some tea.」
+「If Elena was alone, she would definitely not have arrived on time, would she?」
 
-As he went around the desk…
+「Y… Yes, it is all thanks to Sera.」
 
-「Let me help you.」
+「Aah, I see.」
 
-Kate, who had not joined the discussion, stood up as well.
+During her high school years, Elena commuted by bus, so she rarely had the chance to board a train.
 
-「Ah, thank you. It’s this way.」
+Coupled with her introverted personality and obsession with Yuu, she rarely even went outside the town by herself during her three years of high school.
 
-Kate was unwilling to make eye contact with him, but feeling happy to hear that offer from her, Yuu invited her to the office kitchenette.
+It was thanks to Sera, who was a surprisingly dynamic person, that she was able to take the train to get here.
 
-「Thank you for earlier.」
+As they went in through the entrance, waiting for them were Rumiko and a group of women in their 20s to 40s in plain suits, probably Rumiko’s subordinates and the hospital’s clerical staff. Including a veteran nurse in a white coat and a hospital security guard, there were a total of eight people.
 
-「Huh? Aah.」
+Yuu felt that this was a very high-profile welcome, but it might have been because this examination held great significance.
 
-While they were waiting for the kettle to boil, Kate, who was standing behind him, said in a quiet voice that Yuu could barely hear.
+There, they were told Yuu would have to temporarily with part Elena and Sera to undergo a special menu.
 
-She was probably talking about how he had deceived them using a made up story about his meeting with Kate without mentioning the Red Scorpions.
+The two girls’ examination would finish in the morning, but it seemed that being a man, Yuu’s examination would continue until the evening because of the large number of examination subjects.
 
-「Likewise, I couldn’t really tell them the truth either, after all. So we’re in the same boat.」
+As such, he contacted Kanako and Touko before they left.
 
-「Hmph. I guess so.」
+And he decided to meet Elena and Sera for lunch.
 
-「Still… I sure was surprised there. To think you would be in the student council of Sairei.」
+「Then, let’s have lunch together, shall we?」
 
-When Yuu turned and looked at her, Kate looked away.
+「Got it, big sis. I might end up making you wait again, though.」
 
-「So was I, I had never thought that you’d be in the student council.」
+「It’s fine. I’ll be waiting for you, Yuu.」
 
-「Hahaha. Well, one thing led to another, you see.」
+Elena gave him a wide smile.
 
-When the kettle was about to boil, he took the teacups and teapot out of the drawer, but then Kate came next to him and helped him.
+If you looked at that part only, she was just a normal elder sister who doted on her little brother.
 
-「You seem pretty used to it.」
+The one who quietly approached him from the side and whispered in his ear was Sera.
 
-「I’m a first year student, after all. To being with, we don’t have that many people, after all.」
+「I’ll be waiting for you, so after lunch, let me drink some of your dick milk, okay, Yuu?」
 
-「Hmph. How should I put it, you’re quite the strange one, aren’t you?」
+「Haa…」
 
-「Yeah, I get that a lot.」
+With a giggle and a mischievous smile on her face, Sera moved away.
 
-Scratching his head, Yuu looked at Kate standing next to him.
-
-Both of them had blonder hair, but unlike Sera’s near-white color, Kate’s was a gorgeous color that could exactly be referred to as golden blonde.
-
-Her long hair, which reached the middle of her back, appeared to be straight at a glance, but the ends were a little quirky and had a gentle wave to them.
-
-Her height was not much different from Yuu’s, and compared to the red jersey he saw the other day, the one-piece uniform showed her figure that boasted strong self-assertion better, and whether he liked it or not, his eyes ended up getting drawn toward her.
-
-「What is it?」
-
-Perhaps noticing his gaze, she stared back at him.
-
-「No, I just think you have beautiful hair. Besides, you look good in your school uniform.」
-
-「Haa… To be able to openly say such a thing in front of the person in question without getting embarrassed, you’re just like a womanizer. Even though you have the same name… No, it’s nothing.」
-
-「Same name…? Rather, unlike before, you talk to me normally today, don’t you?」
-
-「Wha…! It, it’s not like I want to get close with boys or anything, alright?!」
-
-Just as he thought he was able to talk to her somewhat normally, sure enough, she was none other than the prickly Kate.
-
-As expected, the fact that she hated men seemed to not have changed.
-
-From Yuu’s point of view, he thought she was quite the strange one herself, and coupled with her beauty, she was a person in whom he couldn’t help but be interested.
-
-When he returned with a tray with enough cups for everyone, it seemed that they still hadn’t decided on the competition.
-
-Having been clashing arguments for an hour, they seemed to be thirsty, so when Yuu and Kate brought them tea, they appreciated it.
-
-As they distributed the yokan (sweet bean jelly) that they had bought for tea snack, cut up and put on small plates, the meeting went into a break.
-
-From what he heard from Riko and Eimi about the discussion while they were leaving their seats, it appeared that since they ended up being in parallel lines for the club competition, both sides had proposed different ideas.
-
-Mixed martial arts, giant domino toppling, beauty contest (cosplay allowed), karuta tournament, karaoke contest… etc.
-
-There were many ideas, but it seemed that they had not decided on any specific one.
-
-There, Yuu asked Sayaka and Rinne for their requirements and wrote them down on the white board for the purpose of organizing them.
-
-It has to be something that is easy for many students to participate in.
-
-It has to be something that doesn’t lean toward a certain school’s specialty.
-
-It has to be something whose outcome can be decided on an individual or group basis.
-
-In order to allow the boys to participate, the school yard and gymnasium of Sairyou will be used.
-
-The budget will be provided by both schools, but ultimately, it has to be within the scope of a student event.
-
-The date of the event will be after the final exam in July. Preferably after the summer vacation.
-
-He also wrote down the ideas that had been proposed so far.
-
-As far as Yuu was concerned, he thought a beauty contest (cosplay allowed) would be interesting, but in that case, there was the question as to what position the boys would be assuming.
-
-Would they serve as judges or would they participate, too?
-
-As Yuu was lost in thought while rereading the points he had written on the whiteboard, he sensed strong gazes on him.
-
-Including Rinne and Sayaka who were drinking tea in a proper manner with their backs straight, most of the student council members of both schools were staring at Yuu.
-
-Only Kate, who was sitting at the far end of the desk, was eating the yokan bit by bit, which looked strangely picturesque despite her Western appearance.
-
-「Don’t you think mixed martial arts would be a good idea?」
-
-「As expected, it has to be beauty content!」
-
-Sayaka and Rinne’s voices overlapped, and they glared at each other.
-
-「How barbaric.」
-
-「In a beauty contest, will the boys serve as judges? If so, I believe that would give Sairyou an advantage.」
-
-「Guh…」
-
-It was you two who proposed those, huh. So Yuu thought inwardly.
-
-Perhaps in part because this time, the talk had been forcefully imposed on them, for today only, the normally calm Sayaka had insisted on such a reckless idea.
-
-「Do you have any good ideas, Yuu-kun?」
-
-As Eimi asked him so with a smile full of expectation, Yuu pondered again.
-
-A competition between high schools.
-
-Something that would allow as many students as possible to participate regardless of their strong and weak points…
-
-An idea emerged from Yuu’s memories before his rebirth.
-
-「How about… a quiz?」
-
-「「「「「 Quiz?!」」」」」
-
-「Err, let’s see… Participants will be paired in groups of three, and the first round will be a yes-no type of two choices preliminary match. In the main round, they will compete in blocks consisting of several groups, and the groups that take first place will advance to the final round. From the main round, I think we can also make the quiz more elaborate, such as a three-choice quiz, a quick-push quiz, or a one-minute time limit quiz.」
-
-What came to Yuu’s mind was the 『National High School Quiz Championship』, the so-called high school quiz that was held every summer and that he used to watch on TV for a period of time.
-
-「What about the quiz questions?」
-
-「I think we can collect public submissions at each school, and then the other school will review them and screen them to see whether or not they are appropriate as quiz questions. If possible, it will be desirable to have a variety of genres, such as science, politics, history, sports, entertainment, culture, trivia, and so on. We will shuffle them together before the event and then pick the questions at random.」
-
-「I see~」
-
-「Hmm. It might be a good idea.」
-
-The response from the Sairei side was also very positive. The vice president Weifei might have raised the corners of her mouth to show a smile, but she looked like a predator aiming for its prey, so it was a little scary.
+The fact that you could never tell where she learned such words, or whether she was being serious or joking, was the curious thing about Sera, and Yuu couldn’t help by get exasperated by it.
 
 ●○●○●○●○●
 
-The discussion continued after that too, but result-wise, the quiz proposed by Yuu was adopted and their plan from then on was set.
+「Thank you for your hard work. Now then, after a one-hour break, we will start the afternoon examination, okay?」
 
-Tentatively, the plan would be implemented on July 27.
+「Yes, ma’am. I understand… Haa. I’m tired…」
 
-Until then, they would discuss things like schedule by phone and fax, and another meeting would be held on a Saturday afternoon in July, so they had decided.
+After confirming that the nurse and security guard who had been accompanying him the whole time had left, Yuu sighed softly.
 
-Since Sairyou had a larger student body, it was decided that they would hold an intramural preliminary match in advance, and on the day of the event, 100 groups, 300 students in total, would be participating in the competition.
+CT scan, MRI, EEG and EKG tests with electrodes, ultrasound echo, and even blood and urine tests.
 
-Of course, it was decided that the boys from Sairyou would be participating in it, too.
+Since there were no patients other than Yuu, there was almost no waiting time, and he went from one room to another, continuously taking examinations single-mindedly as if he were being put on a conveyor belt.
 
-Before they knew it, two hours had passed since the meeting started.
+To finish it off, a group of doctor and nurses palpated every part of his body.
 
-Though, compared to the first half of the meeting, it felt like the second half, which lasted less than an hour with a break in between, had ended in a lighter and smoother manner.
+It also included the genitals, and as he had it directly touched by a beautiful nurse in her mid-twenties who looked a little like Shiho, he inevitably got an erection.
 
-Even though at first the Sairyou side had leaned heavily toward opposing the idea, as they judged that if they were going to do it, they had no choice but to tackle the issue seriously, they eventually began to actively exchange opinions with the other party.
+Perhaps because it was a huge penis. Not only did they look at it with gazes filled with surprise and heat, they even went and took pictures of him in his half-naked state.
 
-When the meeting was over, the student council of Sairyou also decided to send them off until the front of the boarding house.
+While Yuu was thinking that it was pretty exciting to be touched all over by a female doctor and nurses like that, the palpation was over.
 
-「Well then, I suppose this is where part.」
+The doctor and the nurses must have found it very unusual that Yuu was so calm and unconcerned even as he got his body touched while being subjected to their heated gazes.
 
-「Yes. We spent a meaningful time today. Now then, everyone of Sairyou, have a good day.」
+Each and every one of them expressed their gratitude and apologies.
 
-*Squish* Soft bulges were pressed against Yuu’s arms.
+「I truly appreciate it. Thanks to your cooperation, we were able to finish faster than I expected.」
 
-Feel-wise, the ones on the left side were equally matched with Sayaka’s, while the ones on the right side boasted even larger bulges.
+「I am sorry for making you endure being surrounded by women for such a long time.」
 
-「You there, wait.」
+「No, it’s not a problem at all. If anything, I was happy to be surrounded by beautiful young ladies like you.」
 
-「Could you please refrain from trying to take him home so casually?」
+When Yuu answered so, the girls openly heaved out a sigh of relief, and their cheeks reddened with happiness.
 
-「Don’t take Yuu-kun away!」
+Done with the long, three hour examination, Yuu felt a rush of mental fatigue as soon as he entered the break room where his elder sisters were waiting for him.
 
-Rinne on his left side and the vice president Norika on his right, the two were holding Yuu’s arms firmly.
+It was probably to check in detail that there was no abnormality on his body.
 
-「Oh my? I have taken a liking to his looks and personality, so I am thinking about getting to know him better, you see.」
+The fact that Yuu was able to finish the examination in half a day, which would normally take a lot of money and time, was probably proof that he was being given preferential treatment.
 
-「I can’t allow that.」
+It seemed that Yuu underwent the examination in a place called D wing of the building consisting of four wings.
 
-Sayaka came at them with a scary look on her face, so as expected, Rinne and Norika moved away from Yuu.
+It seemed that this wing was usually used for men, and the only people he saw there other than the nurses and other staff members were a few elderly inpatients.
 
-「Oh, my, so scary. We are only joking.」
+He was taken to the break room on the third floor of D wing for lunch, and perhaps because the place had been cleared in advance, there were only Elena and Sera inside the room, which was about the size of a school classroom.
 
-「It doesn’t sound like a joke when you guys do it.」
+While Yuu was still wearing his inspection clothes, which looked like pajamas made of a thin fabric, over his T-shirt and underpants, the girls had already changed into the same clothes they had worn when they arrived.
 
-「Now, what might you be talking about?」
+Elena was wearing a rough combination of a short, light purple cutsew that almost showed her navel and slim jeans.
 
-Rinne, who tilted her head as if she truly didn’t know what she was talking about, turned around, smiled, and squeezed Yuu’s hand once again.
+In contrast, Sera was wearing a white dress with lots of frills, just like when he saw her for the first time. Perhaps because the sun was shining today, she had also brought a straw hat with a red ribbon.
 
-「I am looking forward to seeing you again. Yuu-san.」
+Judging by appearance alone, she looked like a young lady of some sort.
 
-「Well, please go easy on me.」
+「Good work~. Now, let’s eat the bento!」
 
-As they watched the members of the student council of Sairei leave toward the administration building where their cars were parked, Sayaka’s group of three showed an exhausted smile with a face as if they were feeling relieved from the bottom of their heart.
+「You must be hungry, no? Which one do you want?」
 
-●○●○●○●○●
+「Thank you. For getting one for me, too.」
 
-As when they came, the members of Sairei student council rode separately in the two cars, and in the car in which the president and the vice presidents were riding, Rinne was thinking about something with a cold look in her eyes, a complete change from the goofy expression she had had on her face until just a moment ago.
+It seemed that they had bought them in advance, as there were three bentos lined up on the table.
 
-「Norika.」
+Looking at the contents of each bento, Yuu gave a small smile.
 
-「Yes~」
+Most likely, the salmon nori bento was Sera’s favorite, while the hamburger steak bento was Elena’s favorite.
 
-「When we get back, I need you to contact the 『Agent』 immediately.」
+Which meant, the remaining one, the makunouchi bento (a bento consisting of mostly rice along with fish, meat, pickles, eggs, vegetables, and an umeboshi (a salt pickled plum)), was Yuu’s.
 
-「About that boy from earlier, right~」
+As he ate his bento facing his two elder sisters in the empty room, they talked about the morning’s examination.
 
-「By all means, I would like to get my hands on that boy.」
+Apparently, the two didn’t get a full body examination like Yuu, but mainly female-specific examinations of the breasts, genitals, uterus, and so on.
 
-Rinne raised her right hand and looked at her manicured nails, but it seemed that in her mind, she was recalling the feeling of the body she had touched earlier.
+They explained to him without any embarrassment, pointing to their breasts and crotches all the while, which ended up making Yuu embarrassed instead.
 
-「From touching his body, he seems to be training his body quite a bit.」
+After that, it seemed that they also answered some questions about their menstrual habits and sex-related matters during an interview, but there was one scene where Yuu stopped Sera as she tried to tell him about it in detail.
 
-「He was wearing tight jeans, so I could clearly see the bulge on his crotch. I’m sure he is hiding something nice down there. Gufufu.」
+The break time was eventually coming to an end.
 
-「Ufufu. I wonder what kind of voice he will make on the bed?」
+Done with their examination, the two said that since they had come all the way here, they would go to the department store in front of the station and do some shopping before going home.
 
-*Kukuku* With a laugh, Rinne gracefully crossed her legs.
+「Well then, Yuu, good luck with your afternoon examination, too.」
 
-Then she schooled her loosened up lips and turned to Norika.
+「Yeah, and you take care too, big sis. Make sure not to get lost, okay?」
 
-「Not only his address, family structure, and parent’s place of employment, but also his hobbies, preferences, and even his dating history, strip everything bare. You get it, do you not?」
+「I get it, duh.」
 
-「But of course~.」
+Getting up to head to the exit, Yuu had his right hand held by Elena, who had moved closer to him from the side.
 
-Norika’s tone of voice was as slow and lax as before, but her eyes were not smiling.
+His other arm was, of course, held by Sera, who pressed her chest against it.
 
-It was just that, one of them, Weifei alone was looking out the window, acting as if it had nothing to do with her.
+The chest of her dress was wide open, so when Yuu looked down he could see her cleavage.
 
-●○●○●○●○●
+「I didn’t get to drink your dick milk, Yuu. When you get home… Let’s do it?」
 
-Yuu and the others returned to the student council office and took their seats, but Sayaka and Riko’s complexions were not so great.
+「Hahaha… Only if I still have any strength left.」
 
-「As things stand, July will be a very busy month for us, and yet…」
+「Don’t worry, you can just lie down and do nothing, Yuu.」
 
-「Haa~, talk about depressing.」
+「You mustn’t leave big sis out, okay?」
 
-「Come to think of it, what’s the event in July?」
-
-「The intramural camp. Last year it was held at the end of July, I believe.」
-
-At Sairyou Academy, excluding the new students orienteering event and school trips, there were few events in which the students went outside the school.
-
-This was also part of the consideration for the boys, and for safety reasons, most events were held inside the school.
-
-They also deliberately held the camping in the school grounds, rather than at a campsite on a mountain stream.
-
-Setting aside its location, with boys and girls cooking together in the boarding house’s kitchen and gathering around the campfire, it sounded like a pretty fun event.
-
-「In that case, how about we hold it on the same day?」
-
-「On the same day?」
-
-At Yuu’s words, Sayaka and Riko fell into thought
-
-「The preparation will still be tough, and on the day of the event, we will be working from morning to night, so the workload will be greater, but conversely, we will only have to be do the cleanup once.」
-
-「That is fine and all, but… I think it would be a big problem if Sairei finds out about it.」
-
-「To avoid that, I guess we’ll have to be very strict and thorough in keeping it a secret.」
-
-「All that is left is to set on a time and make sure to have them all leave by then.」
-
-For the time being, they decided to discuss and decide whether or not to hold the July boys-girls social event on the same day as the inter-school competition with Sairei.
-
-「Phew. Either way, I am truly glad that you were here with us today, Yuu-kun. We wouldn’t have been able to come to an agreement on our own.」
-
-「Fufufu. You are right. I am truly glad to have you here with us, Yuu-kun.」
-
-Sayaka and Riko, who were sitting on his left and right sides as they had been during the meeting, leaned in close to him.
-
-「Yuu-kun!」
-
-Hugging him from behind was Eimi.
-
-Yuu took the tassel of her twin-tail hair, which hung down to his chest, in his hand and played with it.
-
-「I’m glad I could be of help. But still, they were pretty intense people, or rather…」
-
-「I think they were still playing the nice guys today.」
-
-「Is, is that so? Them acting like that…」
-
-「Yes.」
-
-Sayaka, who had been resting her cheek on Yuu’s shoulder, raised her face, so they looked at each other.
-
-Her expression showed that she was seriously worried.
-
-「If it is our students, there is no need to worry no matter how close you get with them, Yuu-kun. We have been educated under the motto, 『Be a lady to the boys』, since the very first day we entered this school, after all.」
-
-「Ah… True enough.」
-
-Whenever they met, the girls from Sairyou were always full of smiles and amiable.
-
-Although they showed their favorability toward Yuu and the other boys, they never forcefully approached them and always properly maintained a certain distance from them.
-
-That was why, even first-year boys who were not used to girls were not so afraid of them, and they were able to gradually get closer with each other. These all were apparently the result of education as a co-ed school.
-
-「However, Sairei is different. They hold no respect toward boys. That’s why… If we re-establish the exchange event, I feel like it will cause various problems, which makes me scared.」
-
-Riko held Yuu’s arm tight in her arms.
-
-「Riko-senpai…」
-
-「In fact, their student council president was clearly targeting you, Yuu-kun!」
-
-Even as she expressed her anger, Eimi was stroking Yuu’s head with her mouth loosened up.
-
-「Given her standing, I don’t think Rinne will go as far as committing a crime, but there are rumors that she switches men one after another, after all. I’m afraid that if she targets you, she will come on to you relentlessly, Yuu-kun.」
-
-Sayaka had a worried look on her face, but with the three of them sticking so closely to him, on the contrary, Yuu was slowly getting turned on by their sweet scents and warmth.
-
-「Things have ended up turning like this, so I have no choice but to brace myself. Besides, I have the three of you here with me, so I don’t feel helpless at all.」
-
-「「「Yuu-kun.」」」
-
-「Today, the meeting dragged on, so you must be tired, right? How about we relax in the waiting room?」
-
-「Are you okay… with time?」
-
-Riko’s cheeks turned a little pink when she heard him mentioning the waiting room, and when she asked him so with upturned eyes, it was so adorable that he couldn’t help but break into a smile.
-
-Taking a look at the clock in the room, Yuu nodded his head.
-
-「It’s still fine. That’s why…」
-
-With the three of them sticking closely to him, Yuu slowly stood up.
-
-When he kissed them in turn starting with Sayaka, the girls pressed themselves even more closely against Yuu.
-
-Bunched up together exactly like dango, the four of them moved to the waiting room.
-
----
-
-## Chapter 82 - Sairei Student Council’s Visitation! (3) ~LOVE LOVE LOVE~
-
-「Hmm~, no matter how many times I look at it, Yuu-kun’s dick is so manly that I get wet just from holding and licking it like this! Amm… Chuupa, lick, chuu~」
-
-「Ufufufu, it is so firm and pulsating. Moreover… haa~, it is so hot… nmm, chuu, chuu, lick.」
-
-In front of Yuu’s eyes, Riko and Eimi were caressing his erect penis from both sides with their hands and mouths.
-
-Presently, Yuu had already had his panties and underpants taken off by them.
-
-Eimi was not only sucking the glans into her mouth, but also moving her tongue around in her mouth and licking it around.
-
-Her hand was stroking Yuu’s stomach around while her other hand was gently massaging the ball sack.
-
-Riko was crawling her lips and tongue over the pole as she stroked from the base.
-
-Eimi had the upper hand in terms of aggressiveness in giving fellatio.
-
-At first, Riko displayed no semblance of technique at all, but perhaps thanks to her showing her inherent earnestness, she had improved quite a lot.
-
-Both of them loving Yuu’s penis was probably the secret of their improvement.
-
-On the other hand, Yuu was delightfully sucking and fondling Sayaka’s breasts as she hugged him from the side.
-
-Boasting enchanting size and shape, her beautiful breasts were such well-shaped breasts that he would love to fondle and suck all the time.
-
-When Yuu was alone with Sayaka in the student council office, there were times when he ended up rubbing them from over her school uniform as they hugged each other.
-
-At those moments, she would simply chide him a little at first, but when his fondling hands reached for her nipples, she tended to let out sweet cries, so her sensitivity was also great.
-
-「Kuh, aaaah… Ahn! Geez… You sure like boobs, don’t you, Yuu? L, looking at you like this, you are like a big baby… hnnn, kufufu…」
-
-「I love your boobs, after all. But it feels good to you too, doesn’t it, Sayaka?」
-
-「U, uu… It, it feels good… Aahn!」
-
-Sayaka held Yuu’s head against her chest lovingly.
-
-Before they knew it, they had reached a point where when the four of them had sex, they would forgo all formalities and call each other by their given name.
-
-Though, Eimi alone still called him in the same way she did before, as she seemed to have taken a liking to the「Yuu-kun」 call and showed no sign of wanting to change it.
-
-Yuu rolled the nipple he was holding in his mouth with his tongue, or sandwiched it between his lips and pulled it lightly.
-
-With his other hand, he had been fondling her breast that was so voluminous that it was more than he could hold in the palm of his hand, but he slowly slid it down.
-
-The girls’ group had also taken off their skirts and panties already. Sayaka was in a state where she had the front of her sailor uniform open and her unhooked bra shifted upward.
-
-As such, Yuu’s hand, which was tracing Sayaka’s toned stomach, passed through her pubic mound and reached her wet and glistening secret place very easily.
-
-When he spread the chasm with two fingers and traced the middle area with his middle finger, his finger immediately got covered by her love juices.
-
-When he put his fingertip into the vaginal opening, bending the first joint as he moved it, he could hear a lewd, squelching sound.
-
-「Ahn… Aahn! T, that place… Yuu!」
-
-「Looks like your place down there is also so wet, Sayaka.」
-
-「I, I mean… Yu…uuu!」
-
-With a pained look on her face, Sayaka lowered her head and pleaded Yuu to kiss her.
-
-Standing on her knees, Sayaka was looking down on him from above, so when she lowered her head, Yuu’s face was wrapped in her black and glossy hair, which made him feel happy in its own way.
-
-Having her sensuality stimulated by Yuu’s caresses filled with his feelings, Sayaka zealously dropped her lips.
-
-「Nmm… Chuu… chuu, nmm… Hnn, nghh… Amm… Lick, chuupa… Haa, haa, Yuu.」
-
-「Ahh… Sayaka.」
-
-Yuu’s arousal level increased as he licked off Sayaka’s saliva, who had her mouth slightly open, and the movements of his finger playing with her vaginal opening increased in speed.
-
-As he inserted his middle finger deep into her vagina and moved it around, *squelch, squelch* the sound grew into a sticky wet one.
-
-「Hyaan… Y, Yuu! If you move it, any more than that!」
-
-「If I move it any more than this, what will happen, I wonder?」
-
-「You meanie… Hnn~~~! Ahn, ahn! N… Nooo…」
-
-While Yuu was teasing Sayaka, Riko, who couldn’t hold herself back any longer, was trying to get on top of him.
-
-「Aa~n. I want Yuu-kun’s dick too…」
-
-「Nghh. You have to wait for your turn.」
-
-Ignoring Eimi, who was looking at her enviously, Riko excitedly straddled Yuu, spread her chasm on her own, and tried to take his penis into her.
-
-While she was giving him a fellatio, she played with her secret with her own fingers, so she was already ready to go.
-
-In rotation, they had decided on the order for when the three of them did it together.
-
-Last time, although there had ended up being a blank period of more than a week due to them being busy with the preparations of the inter-class ball game competition, Sayaka was the first, so Riko was the first today.
-
-The order was maintained: Sayaka → Riko → Eimi.
-
-「Yuu… Nghhhh… I, I’m putting it in, okay?」
-
-As she sandwiched his penis, which had gotten hard and was stretching along his lower abdomen, between her thighs and rubbed it with the base of her bare thighs, Riko whispered so in a sweet voice.
-
-When Yuu temporarily turned from Sayaka to Riko, they looked at each other.
-
-In the face of the union, Riko, who had taken off her glasses and her cheeks were tinted pink, was completely in a horny mode.
-
-It was the face of a female, which her normally sagacious self would never show in front of other people.
-
-「So today, you want to ride on top, huh.」
-
-「Yes… I think I have gotten a little better at it, too. So… let’s go at it… together?」
-
-「I love that look of yours, Riko, it’s so erotic and cute. Then, lick this first.」
-
-「Ahan.」
-
-What Yuu held out was his middle finger, which he had been slipping in and out of Sayaka’s vagina until just a moment ago.
-
-Not only the base of his finger, but even the palm of his hand was coated with clear juice.
-
-「Nmm… Lick… Amm… So tasty. Nmm, hnn, slurp, chuurp, chuurp, lick, chuupa.」
-
-While moving her hips slowly, Riko licked Yuu’s finger zealously.
-
-She reached out her red tongue and scooped up the droplet that dripped from his fingertip and almost fell off, and took it into her mouth.
-
-After swallowing it as if savoring the taste of Sayaka, she kissed and sucked Yuu’s finger all over from the top and licked the base carefully.
-
-Then she opened her mouth wide and swallowed Yuu’s finger and began to suck it as if she was giving him a fellatio.
-
-Crazy…erotic…
-
-The sight of a beautiful senior licking his finger in such a lewd manner was very stimulating.
-
-There, Eimi, whose hand was free, hugged him from the right side.
-
-「Yuu-kun!」
-
-「Amy!」
-
-Since they came into this room, they had exchanged kisses numerous times, in which they used the tips of their tongues from the very beginning, and twined their tongues together without minding whose tongue it was.
-
-His left hand had been holding Sayaka’s waist, but it was now rubbing her vaginal opening from the buttocks.
-
-Unable to endure it, Sayaka clung to Yuu and passionately showered kisses on his shoulder and neck.
-
-「I can’t, endure it anymore!」
-
-Yuu shifted his hips slightly to aim at Riko and placed the glans at her vaginal opening.
-
-「Hnn, fewh? Yuu?!」
-
-Riko, who was still sucking and licking his finger zealously even now, was surprised.
-
-That because Yuu had actively gotten into the position for penetration.
-
-「I mean, it’s because you’ve been teasing me, you know, Riko?」
-
-「T, that was not my intention… Aun!」
-
-「I want to have you right this instant, so… Guh.」
-
-「Y, Yuu… Hnn… Aahn!」
-
-As soon as Yuu and Riko were connected all the way to the deepest part through their joint efforts, unable to hold back the pleasure, both of them let out a cry.
-
-「It, it came into me… Ahn, so good… it feels so good! Yuu!」
-
-「Riko! It feels good! To make it feel even better… P, please move.」
-
-「Yes! Y, Yuu’s dick… is poking my deepest part… Ahn, ahn, aahn! It, it feels, so good! Ahn! So good!」
-
-Holding Yuu’s shoulders tightly, Riko shook her hips fervently.
-
-It was on the level where each time she did, a wet squelching sound leaked from their coupling tools.
-
-Even though she usually carried herself in an intelligent manner, right now, she was dominated by pleasure and unable to put what she was feeling into words, transforming into nothing but a female that desired a male.
-
-Other than Riko, who got the first penis, the other two were also becoming less reserved in their desire for Yuu.
-
-Letting out moans as she had her secret place played with once more, Sayaka sealed Yuu’s lips and showered him with passionate kisses.
-
-Eimi was licking and sucking Yuu from his neck to his collarbone.
-
-Yuu was also stroking around the bodies of Sayaka and Eimi, having a feel of them with his available hands.
-
-The feast held by the four of them had only just begun.
-
-●○●○●○●○●
-
-When Yuu pumped a large amount of semen into Riko’s womb after she reached climax several times, she ended up collapsing.
-
-The one who came up to him and hugged him without giving him time to check on Riko was Eimi, whose turn was next.
-
-「Yuu-kun, hurry up, please!」
-
-「Hahaha, I get it, okay.」
-
-Smiling wryly at Eimi, who was pressing her body close to him and rubbing her lower body against him, Yuu pushed her slender body down with both hands.
-
-Understanding that they were going to do it in the missionary position – which was also known as male domination position in this world – in which Yuu himself had done numerous times with the three members of the student council, Eimi spread her legs with a little devil-like smile on her face and waited for Yuu to come to her.
-
-「Fufufu.」
-
-The one who hugged him from behind just as he was about to immediately align his hips with Eimi and get into the position for penetration was Sayaka.
-
-Having taken off his tee shirt because he had become all sweaty, *squish* Yuu could feel that her ample breasts were pressed against his back.
-
-「Let me give you a hand.」
-
-「Hahaha…」
-
-As he felt Sayaka’s breath on his ear, he leaned his upper body forward.
-
-Sayaka’s hands, which were wrapped around his body from behind, were gently placed on his penis, which still maintained its hardness despite having ejaculated once.
-
-As Yuu gazed at Eimi in a slightly slanted position, he held her slender waist with one hand and her outstretched hand with his other hand, and matched only the angle of his penis.
-
-Just by touching it with the tip of his penis, he could tell that Eimi’s secret place was sopping wet.
-
-「Even though it is all slippery, it is very hard… and hot.」
-
-「Fufufu, Sayaka, I’ll put it inside you too, so…」
-
-「Ahn, geez. Right now, shove it inside me with everything you have!」
-
-「Ah, sorry, sorry. I’m going to put it inside you now, Amy. Can I go hard from the get go?」
-
-「Yes. Do it however you want, Yuu-kun.」
-
-His penis, which was still held in Sayaka’s hands, was inserted into Eimi.
-
-Being the smallest of the three, Eimi’s vagina felt narrow, but perhaps because it had already been accustomed to him, it properly accepted his penis and clamped down on it tightly.
-
-「Ahh, ahn! Ahn, aah… Yuu-kun is… coming… into me! Haan! I have been wanting it… Hii, ahh, auu! In my deepest part!」
-
-「Kufufu… I’ve come all the way to your deepest part! Here we go, Amy!」
-
-「Kyan!」
-
-Even after the insertion was complete, Sayaka was still holding him from behind, so it was a little difficult for him to move, but not so much that it would keep him from moving.
-
-If anything, as far as Yuu was concerned, not only did he have Eimi, who suddenly became all debauched, in the front, he could also feel Sayaka’s warmth in the back, so his excitement level was showing nothing but an upward trend.
-
-As such, from the very beginning, Yuu shook his hips in large strokes as he attacked Eimi.
-
-「Hyaan! Y, Yuu-kun! Ahn, ahn! Amazing, it is so amazing… Hahii, hahii… I, I, I am going to cum, so… if you go that hard… Ahn! Noo, cumming… Ahh, hii! I, I am cumminggggg~~~!!!」
-
-「Hahaha, so you came already. But we’re just getting started, you know?」
-
-「Aaahn… Yuu-kun…」
-
-Putting strength into the hand that was holding Yuu’s and raising her upper body, Eimi moved closer to her beloved Yuu and kissed him.
-
-As they twined their tongues together after pressing their lips against each other with a smooch, Yuu didn’t stop moving his hips.
-
-Unable to endure the movements in which he was rapidly knocking on the entrance of her womb, which had come down, Eimi arched her body back and moaned.
-
-When Eimi shook her head from side to side as if she was trying to resist, her flaxen twin-tail hair also shook violently.
-
-It seemed that it would not be long before she reached climax for the second time.
-
-●○●○●○●○●
-
-「Fufufu, being the third one, the waiting time was tough, but I am very happy that it allowed me to be alone with you like this, Yuu. Still… Even though you have ejaculated twice, your… umm, should I say sperm? … sure is unbelievably vigorous, isn’t it?」
-
-With one hand placed on the shoulder of the cross-legged Yuu, Sayaka was trying to lower her hips slowly.
-
-She had stretched out her other hand toward Yuu’s crotch and placed it on his meat rod, which was still towering even after ejaculating twice.
-
-Having had a lot of semen poured into her after reaching climaxes over and over again, Eimi was still unable to get up alongside Riko.
-
-Giving a sidelong glance at those two, right now, Yuu and Sayaka were trying to get connected with each other.
-
-Yuu, who had buried his face between Sayaka’s ample breasts and was enjoying their softness and sweet scent, raised his face a little and looked at Sayaka.
-
-「I mean, I love Riko, Eimi, and you, after all, Sayaka. Even now, I can’t wait to get connected with you, and ejaculate inside you as much as I can.」
-
-「Ah…」
-
-The glans kissed her vaginal opening and a wet squelching sound could be heard.
-
-Making use of her own body weight, the penis slowly got swallowed into Sayaka.
-
-When her eyes met Yuu’s, a hot rush welled up in the depths of Sayaka’s chest and she involuntarily held Yuu’s head in her arms.
-
-It could be a motherly instinct or a protective desire for a younger boy.
-
-At the same time, it could also be a sense of gratitude and respect for the man who had taught her the heartwarming touch of the opposite sex and the joys of sex.
-
-If one were to express the complex emotions swirling in Sayaka’s heart in one word…
-
-Just before the lips of Sayaka, who was bringing her face closer while looking down at Yuu from above, made contact with Yuu’s, she quietly let out two sounds.
-
-「Love you.」
-
-「「Nghh!」」
-
-With their lips pressed against each other, the two were connected, deeper and deeper.
-
-「Nghh… Hnn, ahn… Ah, ahn, aaaaaaaaaaah!!」
-
-As Sayaka jerked her chin up and let out a long, coquettish cry, her glossy black hair shook wildly.
-
-At the same time, she hugged Yuu tight, and her breasts that were pressed against him squishily changed their shape.
-
-「S, Sayaka…」
-
-「Y… Yu…u! Haaaaaan…」
-
-「By any chance?」
-
-「Noo.」
-
-Having his head hugged and his face buried in her chest, he could feel her heat through his cheeks, which were coming into contact with her body.
-
-Her face was overshadowed by her long black hair, but he could imagine Sayaka’s snow-like white cheeks stained in vermilion like a ground cherry.
-
-「Did you come, just from putting it in?」
-
-「Geez, Yuu!」
-
-To hide her embarrassment, Sayaka pressed her forehead against him.
-
-Yuu brushed away her hair, which was hanging down in front of her, and looked at Sayaka’s face up close.
-
-Soon after, she also brought her lips closer to his.
-
-*Chuu, chuu* They pressed their lips together over and over again.
-
-「It seems that… I have ended up getting completely addicted to you, Yuu… both physically and mentally…」
-
-「The same goes for me, no?」
-
-「Is, is that so?」
-
-「Yes, it is. Just look.」
+「I get it, duh.」
 
 「Ahn!」
 
-When Yuu thrust his hips up, Sayaka’s body jumped.
+Shaking his arms free, Yuu pulled the two toward him at the same time with his left and right hands.
 
-「Even though I just came… I want so much more of you that I can’t hold myself back. T, to think I would develop such a feeling…」
+Elena’s light brown hair and Sera’s platinum blonde hair,
 
-「Me too, I want to feel even more pleasure with you, Sayaka.」
+When he stroked them with his palms, both of them were silky and pleasant to the touch.
 
-「Nghh, ahn! So intense… Ahn! Yuu!」
+While stroking their hair, he exchanged kisses with the two in turn.
 
-「Ahh! Sayaka… You’re clamping down on me so much…」
+As the three of them hugged each other tightly after repeating the kiss five or six times, they heard a knock on the door.
 
-Matching the timing Yuu thrust his hips up, Sayaka’s hips also moved in tandem.
+「Then, see you later. Big sis, big sis Sera.」
 
-Each time, *squelch, squelch* a sticky wet sound could be heard from their lower abdomen areas, which were sticking close so closely to each other.
+「Bye-bye, Yuu.」
 
-Before they knew it, Sayaka’s long legs were wrapped around Yuu’s waist, as if she would never let him go.
+「Yuu, I’ll be waiting for you in the nude, so…」
 
-Since their bodies were sticking so closely to each other, the movements themselves were small, but as he rapidly knocked on the deepest part of her vagina with her hard meat rod, each and every fold of her vaginal walls twined around and stroked him as if trying to squeeze his sperm out of him.
+After parting with his two elder sisters, Yuu was escorted by the nurse and security guard who had come to pick him up, and headed off to undergo the afternoon examination.
 
-「Ah, ah, Sa…yakaa!」
+---
 
-「Y… Yu…u! Nghh, ahhh… I am coming, again! Yuu, Yuuuu… Haan, hiin! I, I am coming! I am… coming again, so! Ah, noo, coming, coming, I am coming!」
+## Chapter 85 - Special Examination (2) ~You’re the Only…~
 
-Even as he shook his hips furiously, Yuu stared at the face of Sayaka, who was moaning with her tongue out in front of him.
+In contrast to the morning session, the afternoon session consisted of a personality assessment including a psychological test by a psychiatrist and an interview with a specialist in sexual problems.
 
-Finding even the melty look on her face as she completely became a prisoner of pleasure lovely, he stoked her glossy, pleasant-to-the-touch hair and sucked up the sweats dripping down on her skin like marbles.
+The psychological test consisted of a test in which he was shown a strange picture and asked what it looked like, a test in which he had to answer 「yes,」 「no,」 or 「neither」 to a question, a test in which he had to make up a short story (past, present, or future) from a picture depicting a certain scene, and so on.
 
-「Guh… M, me too!」
+It also included the psychological test Yuu was familiar with, but gradually the number of questions associated with male-female relationships and sexuality went up.
 
-「Y, Yuu, are you going to come, too? … Kyan, ahn! It is swelling up inside me!」
+In the interview following that, he was subjected to a pretty in-depth questioning about his thoughts on women, his interest in sex, and even his past experiences with women.
 
-「I’m going to shoot it out! Inside of you, Sayaka… all of it.」
+As far as Yuu was concerned, he was not sure how much he should answer, but the other party was a counselor who stated at the very beginning that she was a bisexual woman who liked both men and women.
 
-「Aahn, give it to me! Your.. stuff… Aaaaaah! M, me too… together.」
+She was a dignified woman who made him think that if Kuroda Noriko, with whom he had a sexual encounter in the stall of the men’s restroom, were to polish herself in the right direction for another 10 years or so, maybe she would turn into such a woman, and he certainly felt that she would probably be popular with women as well.
 
-「Kuh… Let’s cum together! Aaah!」
+Moreover, as she voluntarily told him about her sexual experiences (with both men and women), Yuu also had no choice but to answer her questions to a certain extent.
 
-Pressing their cheeks against each other, the two realized that the final moment was approaching, so they hugged each other even tighter as they slammed their hips against each other.
+In spite of her androgenous-ish good looks, she always sported an amiable smile on her face, and her way of speaking was unique, so he felt like he had spent a surprisingly fun time talking with her.
 
-After repeatedly thrusting his hips, the moment Yuu made a sharp thrust all the way to her deepest part, he could feel that an unprecedented electrifying stimulation was running from his hips to his back.
+After a short break, in a room that seemed to be an examination room, he was made to sit on a bed with cords, which looked like the ones used when taking an electrocardiogram, attached to his head and chest.
 
-「Ahh, S, Sayaka! Cumming!」
+There, to his surprise, women, who seemed to range in age from 10 to 40, came in and out of the room by turns.
 
-「Yu…uuu! It is coming! The amazing stuff is… Ahh, ahh, ahh, aaaaaaaaah… Ohh! It is coming out! The hot stuff is… I, I am also… comingggg…」
+For around one minute per person, he chatted and engaged in light body touch, including handshakes, with the other party as she leaned in close right next to him.
 
-Feeling the hot sperm getting poured into her womb, Sayaka welcomed her greatest climax of the day, and due to how strong the impact was, she forgot to even think as her consciousness began to slowly fade away.
+There were 50 women in total, in which about a third were women who clearly screamed foreigners.
 
-As Sayaka went limp and looked like she was about to fall over, Yuu held her head in a panic and breathed a sigh of relief.
+Some were plain, some were very pretty. Some were thin, some were plump.
 
-From over Sayaka’s shoulder, he could see that Riko and Eimi, who were lying sprawled on the floor, were looking at them with a smile on their faces.
+Maybe they wanted to know the type of woman he liked, as well as the scope of his strike zone.
 
-「Whenever I do it with Yuu-kun, it always feels so that I end up coming over and over again, but it felt especially amazing today…」
+When he was told that he could touch any part of their body he liked without reservation, he was at a loss what to do, so at the beginning, he only softly patted their heads and lightly hugged them, but gradually he became bolder and went ahead and touched their breasts and buttocks.
 
-「I have to agree. Or rather, thanks to Yuu, my common sense about boys has been overturned.」
+●○●○●○●○●
 
-「But that’s simply because Yuu-kun is special, isn’t it~?」
+After Yuu finished the afternoon examination, the nurse led him to a small room where Rumiko and another woman in her late 20s, wearing a plain suit, were waiting for him.
 
-「Hmm… You may be right. If so, I don’t think I will be able to do such a thing with any other boy but Yuu.」
+The business card she gave him said that she belonged to the secretariat of the Toyota Sakuya Memorial Foundation.
 
-「Me too. I can only think about Yuu-kun!」
+「Thank you for your hard work today. With this, we are done with the examination… is what I would like to say, but…」
 
-As the two of them engaged in such a conversation while looking at him, he couldn’t help but feel a little embarrassed.
+「Huh?」
 
-However, including Sayaka, who was his first partner, Riko and Eimi were also special existences for Yuu as they had spent a lot of time together.
+Just as he was about to heave out a sigh of relief, he thought, 「There’s still something more to come, huh」, and couldn’t help but put himself on guard.
 
-Even now that he had experienced sex with a number of women, there was no change to that fact
+Rumiko, seeing that action of Yuu, sported a mischievous smile on her face.
+
+「Fufufu. No need to be so on guard. It is simply that I want to have some talk with you about today’s examination. Also, I have one last request, but I will leave it up to you whether you accept it or not, Yuu-sama.」
+
+「Haa.」
+
+Facing each other on the sofa were Yuu, Rumiko, and the other lady from the secretariat.
+
+So far, she had been maintaining her poker face, but as Yuu sent fleeting glances at her since her sharp and composed face was quite the beautiful one, she ended up hanging her head bashfully.
+
+Maybe she’s an unexpectedly innocent person; thinking so, Yuu held a favorable impression toward her inwardly.
+
+Rumiko, picking up some finely printed paper, began to talk.
+
+「It will take a few days to get the detailed results of the examination you had today, so like before, we will mail them to you at a later date. Well, from what we can tell at this point, it seems like there is nothing wrong with your body, including congenital diseases. We can conclude that you are in extremely good health, Yuu-sama.」
+
+「That’s… a relief.」
+
+The examination was done at a fast pace, but it was very detailed.
+
+Getting reborn as a boy of a tender age of 15 was fine and all, but Yuu was relieved to know that there were no strange abnormalities in his body.
+
+「Moreover… Despite having strong interest in women, you are very considerate and equally tolerant towards them regardless of their ages. Just like your own appearance, your genitalia are of the supremely finest quality, Yuu-sama. More importantly, you also have excellent fertility…」
+
+Taking a glance to her side, Rumiko exchanged glances with the woman next to her.
+
+She was nodding her head with an extremely delightful look on her face.
+
+He was happy to be praised for that kind of thing, but Yuu felt a bit doubtful as to in what direction the talk was going.
+
+This time, the woman from the secretariat opened her mouth.
+
+「We have been measuring Toyota Sakuya-shi’s sons in terms of their overall similarity to their father. Although limited to the ones that have been identified to date, we call each of the characteristics that formed the person named Toyota Sakuya the S-factor, and we are examining and determining how much of the S-factor his sons have from various angles.」
+
+Oh boy, for some reason the talk has taken a serious turn; with such a thought in mind, Yuu nodded his head.
+
+「So far, the person who has the most S-factors scored 55 out of 100. But today, after calculating it based on the results of your examination, Yuu-sama, although it is only a provisional result, we got an astonishing score of 85!」
+
+It was the result of Yuu’s examination, but for some reason, she puffed out her chest with pride.
+
+Incidentally, they didn’t seem to be very big.
+
+「E, eighty-five points… is it?」
+
+「Yes! With you being the last generation, Yuu-sama, it is by far the highest score we have ever recorded. So amazing! Hats off to you!」
+
+「Ahaha…」
+
+While Yuu was having a hard time grasping how great of a significance it had, Rumiko cut into the conversation with a warm look on her face.
+
+「Even if you are related to him by blood, you are ultimately a different person, so it is believed that scoring more than 90 points is impossible. As such, it is such an amazing score that makes you worthy to be called the true Sakuya II, Yuu-sama.」
+
+Even after being told that much, Yuu stayed calm.
+
+「Well, speaking of people that are called the second generation, let alone surpassing the original person, most of the time they fail to live up to their reputation, don’t they?」
+
+In his original world, it was common practice in the sports field for the mass media to lionize promising young athletes by calling them ‘’Yada-yada II’’.
+
+However, he had a feeling that most of the time it ended with only creating a buzz.
+
+Though, in this case, anyone should be able to call himself the second generation as long as he was his son.
+
+「Oh my, how humble of you. Certainly, there are some disagreements about the validity of the psychological test, which is one of the evaluations… Sakuya-shi is Sakuya-shi and Yuu-sama is Yuu-sama. Regardless of whether they are the same person or different, their dispositions and behaviors vary depending on the times and environment, after all.」
+
+After saying that much, Rumiko took off her glasses and directed a passionate gaze at Yuu.
+
+The woman from the secretariat was also looking at Yuu with expectant eyes.
+
+Being stared at by two attractive women, as expected, even Yuu ended up feeling embarrassed.
+
+「But let me tell you this. Toyota Sakuya-shi used to be called the star of hope for women of marriageable age, not only in Japan but around the world. And it can be said that you are the most suitable person to succeed him, Yuu-sama.」
+
+True enough, Yuu, as a very common man, loved women.
+
+He had no particular type of woman he liked, and as long as she was reasonably good looking and had an agreeable personality, he thought that was more than enough.
+
+He used to think so, but in the past, he failed to even maintain his ties with a single woman.
+
+But now, in this world where men were scarce, he had been reborn as a beautiful boy and was leading a life of perpetual popularity.
+
+As most of the women showed exceptional favorability toward him, not only did it make Yuu himself happy, it also allowed him to show a relaxed attitude.
+
+About three months had passed since he was reborn into this world.
+
+Since he entered high school, fell in love with the student council president, and had his first experience with her, it could be said that he had had love affairs with so many women that it would have been unthinkable in his original world.
+
+He also got into troubles at times, but he had been able to overcome them without any particular difficulties, perhaps in part due to his good luck, but it could probably be said that he had been able to carve out a path for himself through his own appearance and behavior.
+
+「The results of this S-factor evaluation will not be released to the public. But it will be known to politicians and bureaucrats who hold a certain degree of authority. Among the women holding important positions in the political and business worlds, there are some who have had a love affair with Sakuya-shi when they were young, and even now, they still harbor strong yearning for the deceased, you see. If they find out that a person that succeeds Sakuya-shi has shown up…」
+
+「I, I see… When you put it like that, it makes me feel some kind of pressure, but… What in the world should I do…?」
+
+As far as Yuu was concerned, it was true that he felt elated by his rebirth, and he had planned to live his life freely, taking advantage of the fact that he was very popular with women.
+
+But when he heard about this unexpected turn of events, he ended up getting cold feet on the inside.
+
+That was because although he was an adult mentally, there was no change to the fact that he was a lower middle-class person.
+
+「Ah, w, we didn’t mean to put that kind of pressure on you…」
+
+「Ah~.」
+
+Seeing Yuu making a troubled face, the two showed a flustered look on their faces.
+
+Rumiko laughed bitterly and then opened her mouth in an attempt to put him at ease.
+
+「You look more level headed than your appearance tells, but you are still only 15 years old, are you not, Yuu-sama? I am sorry for unwittingly bringing up adult talk to you. But worry not, we don’t intend to ask you, who are underage, to immediately do this and that just because you know about it. Just live your life like how you have been, Yuu-sama. That is good enough.」
+
+「In other words, I can just act naturally like how I have been?」
+
+「「But of course!」」
+
+The two’s voices harmonized.
+
+「In that case, I guess there is no need to be strangely conscious of it.」
+
+「Yes, as long as you continue to be intimate with a lot of women without reservation from now on too, that is good enough.」
+
+「Ahaha. Yes, well…」
+
+Although he had thought that she would not be opposed to it, Yuu did not think that she would go as far as giving him endorsement to carry it out in an assertive manner.
+
+「So, can I tell you about my last request now?」
+
+「Yes.」
+
+Rumiko licked her lower lip. As if she was licking her lips at the sight of appetizing food.
+
+Although he felt a little scared a short while ago, Yuu had regained enough composure to think that Rumiko’s bright red rouge-plastered lips were sexy.
+
+「In a bit, I would like to ask you to have sex with one woman, Yuu-sama… Oh my? You don’t seem surprised, do you?」
+
+「Well… Considering the talk thus far…」
+
+Having come this far, Yuu would not be surprised even if she were to ask him to have sex with the two women in front of him.
+
+「Then, will it remain the same even if I were to tell you that the other party is your elder sister, even though from different mother?」
+
+「My elder sister…is it?」
+
+Hmm~; Yuu fell into thoughts.
+
+For Yuu, who had actually had sexual relationships not only with Elena but also Sera, there was no reason to hesitate.
+
+All that was left was the other party.
+
+「It is fine. But why my elder sister?」
+
+The one who answered Yuu’s question was the woman from the secretariat.
+
+「After analyzing not only Sakuya-shi’s sons, but also his daughters’ tendencies and preferences, we came to know that they share certain characteristics. One of them is that they are more lecherous than most women and have a strong desire to conceive and give birth to children.」
+
+「Ah, I see.」
+
+He only knew Elena and Sera, but Yuu was a little relieved to know that those two were not special cases.
+
+No, wait. I have more than a hundred or even a hundred and fifty older sisters who are not at all inferior to those two…?
+
+Deep down, Yuu had a complicated feeling.
+
+But if the parents were beautiful, there was a good chance that the daughters would also be beautiful, and in that sense, he couldn’t help but get very curious about them.
+
+「There are precedents of Sakuya-shi’s children getting together and having children with each other. So far, only five children have been born to them, though.」
+
+「Sample… I believe it is rude to call them as such, but even though there are only five of them, two of the born children were boys, you see.」
+
+「Huh, then…」
+
+「Perhaps the children born to Sakuya-shi’s sons and daughters will have a higher probability of being boys.」
+
+「But incestuous marriage is…」
+
+「Yes. I understand. There is the risk of developing recessive genes with disabilities and congenital diseases, but even if we take that into account, if the rate of boys being born is much higher than normal…」
+
+In medieval Europe, repeated incestuous marriages among royalty and aristocrats resulted in an increase in the number of deformed and handicapped children and those who died prematurely.
+
+In Japan, there used to be a custom of sending out young girls to do night crawling when travelers visited isolated villages deep in the mountains, but this, too, was done in order to bring in blood from the outside. It was because based on the rule of thumb, they understood that if the whole village was like a relative community, and they kept having children amongst themselves, the village would decline.
+
+Although it was a hazy memory, Yuu had a recollection of hearing such an anecdote.
+
+Though, he was not knowledgeable enough to know how much the risk was increased by incestuous marriages, and whether it was not good because the blood would become thicker with each generation.
+
+It was just that, if memory serves right, according to what he heard when he went to do semen donation, Sakuya’s children had higher probability to give birth to boys than ordinary people.
+
+It seemed that this trait was inherited to some extent by his sons, but if the partner was his daughter, there was a possibility that the probability would go up?
+
+「I do feel sorry that this ends up turning out like some sort of human experiment, so I will not say anything even if you were to decline. But if you feel inclined, could I ask you to be her partner, Yuu-sama? Truthfully speaking, I was planning to have you choose from two or three of them, but due to their own convenience and timing issues, only one of them could come…」
+
+Rumiko’s expression did contain a hint of apology, but it did not look as if she was not enjoying herself.
+
+「What kind of woman is she?」
+
+「Fufufu. I will leave the fun for when you meet her.」
+
+I knew it, this person is enjoying herself; so Yuu thought.
+
+「But she is someone you have met once, Yuu-sama. She is a cute girl, quiet and innocent in spite of her being twenty-three years old. Incidentally, she is 158 cm tall with a bust of 89, waist of 69, and hips of 95… A little chubby?」
+
+「No, that is enough.」
+
+In today’s society, it seemed that women longed to have a slender figure, so those with small stature and big breasts were not considered to be very desirable. What a waste.
+
+In any case, Yuu decided to accept Rumiko’s request without much hesitation.
+
+After that, he asked them to lead him to the room where the woman was waiting for him, but something that a woman called 」cute」 could be a miss from a man’s point of view, so Yuu thought that he should not expect too much.
+
+Rather, he couldn’t help but get curious about the fact that they had met once.
+
+●○●○●○●○●
+
+It was a room on the top floor of D wing.
+
+It seemed to be a special room similar to the VIP room for men in the general hospital where Yuu was once hospitalized.
+
+Yuu felt so from the luxurious furniture and chic interior as soon as he opened the sliding door and entered the room.
+
+Of course, the bed was one size larger than a king-size bed, and if huddled together, two or three people could probably sleep on it.
+
+Stepping into the room, he found that the room was similar to the VIP room in which he had once been hospitalized, from the large screen CRT TV on the right side of the wall and the black leather sofa nearby.
+
+He noticed that there was a woman sitting hunched over, curling herself up on the front side of the sofa.
+
+「Um…」
+
+「Yesh!」
+
+Perhaps she didn’t notice the sound of the door opening or his footsteps, the moment Yuu called out to her, she stood up with a jump and turned around toward him.
+
+Her black hair, which danced gently as she did so, was mid-back length. Sporting sauvage style, it was quirky and wavy from the middle.
+
+Perhaps because they were hidden by her naturally dropping hair, she had a small face with small parts such as eyes, nose, and mouth.
+
+As Rumiko said, her stature was shorter and smaller than the norm in this world.
+
+Maybe she had taken a shower already, she was wearing a loose white gown, but the length of the gown was only up to her knees, so he could clearly see her surprisingly thin lower legs.
+
+When Yuu moved closer to her, she sported a happy look on her face for a moment, but then hung her head in embarrassment.
+
+Yuu stood in front of her and faced her.
+
+「Err, maybe you knew it already, but I am Hirose Yuu. Umm, Inui-san told me that we have met once, but… I’m sorry. I cannot think of a name.」
+
+「Ah… U, um, I, I, I am…」
+
+It seemed that her excitement level had shot through the roof by the fact that Yuu was right in front of her.
+
+He felt that there were so many innocent women with no immunity to men in this world.
+
+Certainly, since Yuu had come into contact with so many different women, unless they were very memorable women, he had probably ended up forgetting them, but…
+
+「Could you show me your face?」
+
+He asked her to show him her face, which had ended up getting hidden by her hanging long hair, but she simply went 」Haa, haa」, and his words didn’t seem to reach her.
+
+Having no other choice, Yuu leaned his body close to hers, reached out with his hand and took her chin.
+
+「Auu.」
+
+「Hmm.」
+
+As she looked up at Yuu with her round and cute eyes, they looked at each other.
+
+In an instant, her face turned red.
+
+True enough, she was a cute girl that looked like a small animal.
+
+He was told she was 23 years old, but she didn’t look like someone who was older than him at all.
+
+As he approached her, the smell of shampoo and soap tickled his nostrils, making him want to touch her even more.
+
+「So cute.」
+
+「Y, Yuu-hyama?! Ahyuun!」
+
+When Yuu hugged her and stroked her hair, she stood upright with her face red like a boiled octopus and surrendered herself to his touch.
+
+Looking down at her, Yuu could see her cleavage through the open collar of her gown.
+
+Come to think of it, she said her bust was 89cm, huh.
+
+When he held her so tightly that their bodies were sticking very closely to each other, *squiiish* he could feel her soft breasts getting pressed against his chest.
+
+As he was savoring the softness of her body and the heat of her cheeks, the object left on the low table came into his sight.
+
+It was a pair of black-rimmed round glasses. The lenses seemed to be thick.
+
+Speaking of a woman who was so innocent and prone to get excited…
+
+Yuu moved his upper body away a little and took a look at her face.
+
+「Nufufu, nghh~, suuuu… haaaa… H, huh?」
+
+For some reason she was pressing the tip of her nose against Yuu’s chest, and when he took her chin, he noticed that her mouth was loosened up.
+
+「By any chance, are you Yanai Miku-san?」
+
+「Ah… yes.」
+
+He remembered that she was the person from the Japan White Cross Society who had given him an advance explanation when he went to do semen donation two weeks ago.
+
+---
+
+## Chapter 86 - Special Examination (3) ~Scent Charm THE VIP ROOM~
+
+Yuu and Miku hugged each other and felt the warmth of each other’s body.
+
+Perhaps the fact that he had called her name had eased the tension a bit, Miku gently put her hands on Yuu’s shoulder and back.
+
+「I never thought that you were my elder sister, Miku-san.」
+
+「Ah… Our family, is a single-mother household, and I only got to know that my father was that famous Sakuya-sama when I came of age.」
+
+「Huh?」
+
+「Umm… According to my mother, she was working at a hotel in Nagano, and when Sakuya-sama came for a vacation, she fell in love with him at first sight. It seems that not only when Sakuya-sama stayed at the hotel at the beginning, even after that, my mother had a tryst with him over and over again every time he visited Nagano, but… Sakuya-sama was a busy man, so it seemed that the last time my mother met him was when he came to congratulate her right after I was born. That is why to me, it doesn’t really feel real that he was my father.」
+
+「I see.」
+
+Considering Miku’s age, it probably took place before he married Martina, but by then, he should have had more than 10 wives already.
+
+Even so, he must have laid his hands all over the women that suited his fancy wherever he went.
+
+Otherwise, he would not have been able to father more than 200 children.
+
+And one of the results of that act of his was Miku in front of him.
+
+In Yuu’s original world, he would probably have been criticized as an irresponsible womanizer, but in this world, there were countless women who wished to get baby seeds at the very least, by all means.
+
+Perhaps that was why…
+
+Not only did Miku’s way of speaking give off the impression that she did not hold a grudge against her father, Sakuya, she seemed to be treating him as some sort of stranger.
+
+「Which means, when we met for the first time during the semen donation, you already knew that you and I were siblings, Miku-san?」
+
+Miku nodded her head.
+
+「Actually, a veteran staff member was supposed to be dispatched, but in the end, I was dispatched under special nomination form Inui-san. But Inui-san and the others told me to keep quiet about the fact that we were siblings until the right time came. When I met you for the first time, Yuu-sama, I thought, I have such a wonderful little brother, huh; and I couldn’t stop my heart from pounding. As it is, I am already prone to get excited, so…」
+
+He thought she was just an innocent woman who had not immunity to men, but this was the first time Yuu had heard that she had such a circumstance.
+
+「To my convenience, I am the only one who is on her 『lucky day』 today, so if you are so inclined, Yuu-sama, u, u-u-u, umm… your b, baby seed…」
+
+「E, err… In other words, you want to have sex with me, your half-blood little brother?」
+
+「Y… yes.」
+
+Miku’s face turned bright red and she buried her face in Yuu’s chest in embarrassment.
+
+It seemed that the convenience mentioned by Rumiko also meant the women who were in the fertile cycle of their menstrual period.
+
+In other words, it was a condition to get them pregnant.
+
+If Yuu had refused, Miku, who had happened to be chosen because her timing was right, would probably have gone home and felt despondent on her own.
+
+On this occasion, the fact that Miku was his half-blood elder sister posed no obstacle at all in Yuu’s mind.
+
+It was a matter of whether he wanted to embrace her as a woman or not.
+
+In that sense, the fact that a certain part of his own body was reacting had served as proof.
+
+「Miku-sa… let’s stop referring to each other as if we are strangers at this point. Or so I say, but if I call you big sis, I have a lot of older sisters, after all… Can I call you big sis Miku?」
+
+「Big sis… Miku… Ufufu, it makes me so happy!」
+
+When Miku raised her face, she ported a truly happy look on her face.
+
+Perhaps because her tension had worn off, he felt the sex appeal of an older woman in that expression of hers.
+
+「Then, you don’t need to add sama to my name. Just call me without any honorific.」
+
+「Huh?! B, but…」
+
+「I’m your little brother, so that’s only natural, no?」
+
+「Y… Y… Yuu?」
+
+「Yes, big sis Miku.」
+
+「Yuu!」
+
+Getting very emotional, the two of them wrapped their arms around each other and hugged each other tightly.
+
+But Yuu suddenly realized something.
+
+The fact that after learning self-defense techniques first thing in the morning, he came to the hospital after simply wiping off his sweaty body lightly.
+
+As well as the fact that since the hospital was air-conditioned, his stay there was comfortable, but when he underwent the examination, he was so nervous that he had sweated again.
+
+「I’m all sweaty, you see. I’m going to take a shower, so wait a minute.」
+
+「For you to say that you are going to wash that off, how outrageous!」
+
+「Huh?」
+
+「E, err… I, I don’t really mind, you see. Even if you stay the way you are, I mean.」
+
+Miku stuck her nose not only into the examination clothes he was provided and wore, but also the tee shirt underneath it, and sniffed his smell.
+
+「Haan… You smell very good. My little brother’s smell is making me wet.」
+
+In this world, it seemed that many women were aroused by the smell of men, and Miku in particular might have a severe smell fetish.
+
+「You smell nice, too, big sis Miku.」
+
+「Ahn. Your breath is hitting me… Kufufu… Hnn… Ahn!」
+
+Yuu swept Miku’s long hair to her back, gradually moved up as he kissed her neck lightly, and took her tiny earlobe into his mouth.
+
+After gently stroking the ear with his upper and lower lips as if he was going to eat it, he licked the area around it using his lips and tongue.
+
+「Kuh… Nghh~~~, hnn~~~」
+
+Holding Miku’s body, which was trembling slightly as she let out a stifled cry, with one arm, he stopped her face with his other hand as she tried to escape.
+
+Making sloshing noises as he went all the way into her ear, he continued to caress her with his tongue, as if teasing her.
+
+「Nghhiii! Hyan, n, not… my… ear… ahn… hnn!」
+
+After a while, he whispered to Miku, who was showing a completely melty look on her face.
+
+「Big sis Miku, I want to kiss you.」
+
+「Nghh… Yuu… Nmm.」
+
+The moment their lips came into contact with each other, both of them ended up letting out a 「「Nghh」」 moan.
+
+As expected, it seemed that when you kissed someone who was related to you by blood, even if only half, for the first time, an electrifying pleasure ran through your whole body.
+
+「Nghh… Ah… Yu… u… Hnn…」
+
+「Bi… Nmm.」
+
+With melty eyes, Miku wrapped her hands around Yuu’s head as she pressed her lips against his.
+
+The two, whose arousal ended up skyrocketing in an instant, devoured each other’s lips thoroughly, both the top of bottom, as they exchanged kisses with each other.
+
+Soon after, when Yuu stuck out his tongue and licked her lips, Miku was startled and opened her eyes wide, but perhaps feeling electrifying pleasure as their mucous membranes came into contact with each other, she began to assertively intertwine her tongue with his.
+
+Even while they were exchanging deep kisses, Yuu’s hands never rested.
+
+After combing her long hair, he moved his hand down from her slouched shoulder, and then gently stroked her entire back around.
+
+With his other hand, he grabbed her buttocks tightly.
+
+Although it was from over her gown, he could feel the softness peculiar to girls wherever he touched her.
+
+He had heard that she was a little chubby, but her waist was perfectly slim, so if anything, it could be said that she had a curvy figure.
+
+Coupled with the feels of her breasts squishily getting pressed against his chest, he nether region was seething.
+
+「Hnn… Chuu, chuupa… B, big sis Miku…」
+
+「Nghh, ahn, amm… Hnn, hnn, slurp! Haa, haa, Yuu…」
+
+「Shall we move to the bed?」
+
+「Yes…」
+
+When the two reached the edge of the wide bed while still getting tangled in each other’s embrace, they fell onto their sides together as they were.
+
+At the same time as getting on the bed, Miku took off her gown and stripped naked.
+
+The upper half of her body, which she exposed liberally, was narrow in the shoulders and looked slender, but she boasted voluptuous breasts that swayed tantalizingly when she took off her gown.
+
+Large buttocks that could be said to be of the easy delivery type. Plump thighs extending out from there.
+
+In part because she sported plenty of bulges in the places that should bulge, her waist looked slimmer than he had expected.
+
+「Ooh!」
+
+Just as Yuu was about to immediately pounce on that body of hers, he was caught by Miku who had a wide smile on her face.
+
+「Take off your clothes too, Yuu! Hurry up and get naked! Naked! Let me sniff your smell here and there directly~!」
+
+「Yes…」
+
+He ended up getting overwhelmed by Miku, who took one eighty and looked at him with serious eyes.
+
+Why are my elder sisters all like this, I wonder? Yuu couldn’t help but hold such a doubt.
+
+●○●○●○●○●
+
+Not only did Yuu get stripped naked by the hands of Miku, who got more aroused the more he exposed his naked body, he even got licked by her on top of him.
+
+「Haa, haa, Yuu… what a wonderful smell… your skin is also very smooth… Kufufu, I can’t get enough of it. Lick, lick, chuu, chuu, chuu, lick, slurp. Ahnn, sho tahty.」
+
+Starting with his neck, Miku sniffed his smell as she kissed and sucked on his collarbone, shoulders, and chest.
+
+When she took one of his arms and sniffed the armpit, she opened her loosened up mouth wide and licked it up over and over again.
+
+He couldn’t understand why the mere smell of sweat excited her so much.
+
+Deciding to let Miku do whatever she wanted for a while, Yuu stroked Miku’s head and put his other hand under her weighty breast, fondling her bountiful breast flesh.
+
+「Kuha! B, big sis Miku, this is your first time doing it, no? You’re surprisingly skillful in it.」
+
+As she moves from his armpit to his chest and sucks on his nipples, he couldn’t help but let out a groan.
+
+「Ehehe, yes, this is my first time doing it. But since the day I met you for the first time, I’ve been doing image training every day, so… When I imagined that you would surely smell especially wonderful even when compared with other boys, I just couldn’t hold myself back!」
+
+「Ha, haha… I see.」
+
+「But as I suck on your body directly… my place down there grows hot and tingles, you see.」
+
+So that was the reason why she had been rubbing her thighs together as she licked Yuu’s body since a while ago.
+
+He pinched the tip of the breast he was fondling, the nipple, with two fingers.
+
+「Kyan!」
+
+「I want to caress you, too, you see, big sis Miku.」
+
+「Ah… I, I’m sorry. Since I finally got to touch your body, I couldn’t help but get so absorbed in it.」
+
+「It’s okay.」
+
+While stroking Miku’s head, Yuu brought his face closer and pressed his lips against hers.
+
+They raised their bodies and embraced each other again while twirling their tongues together.
+
+Miku’s soft skin was directly touching Yuu’s skin, and the feeling, sweet aroma, and warmth of her body caused his arousal to shoot up wildly.
+
+「Amm… Chuu, chuu, lick… Ahn, fwah… slurp, nghh… Yuu.」
+
+「Fufufu. You gave off plain impression when we first met, but it turns out that you’re actually a very naughty girl, huh, big sis Miku.」
+
+「Ahn! That place is… Hnn, fwaaah!」
+
+When Yuu reached his fingers from her buttocks toward her vagina, a wet sound could be heard the moment he touched it, telling him that it was dripping wet.
+
+Just by running his middle finger back and forth along the middle part of the charm, his finger immediately got covered by her love juice.
+
+「B, back at you, Yuu. Your hot and hard thing has been hitting me since a while ago…」
+
+As the two lowered their gazes, they could see Yuu’s rock hard, erect penis towering between his legs.
+
+Miku looked at Yuu with moist eyes.
+
+「P, please… let me s, smell… your dick.」
+
+「Yes?」
+
+He was now convinced that Miku, who wanted to smell it first, rather than to touch or suck it, was a legit smell fetishist.
+
+As soon as she got Yuu’s permission, Miku buried her face in his crotch with a swift movement and started sniffing from the tip, it seemed.
+
+Even though it had only been a day, his place down there was shrouded in sweat and ammonia smell, and looking at her getting absorbed in sniffing it, he couldn’t help but question her preference.
+
+However, thinking about it the other way around, he would like to bring his face close to a beautiful girl’s vagina, even if it was a little sweaty. In other words, that was probably just how it was.
+
+Not just a little bit, Miku seemed to be steeped fairly deep in her fetish.
+
+「Mu, haa~. So this is… the smell of a boy’s dick… Suu, haa, suu, haa. Nghh~~~… Smelling such a thick male scent, I might end up getting addicted to it.」
+
+「T, that’s… good for you, I guess.」
+
+From Yuu’s position, he could not see Miku’s face, but her expression was loose and her mouth was gaping slovenly.
+
+In addition, she was unconsciously shaking her ass side to side, and clear liquid was trickling down her thighs.
+
+While checking the feel of his penis with her fingertips, Miku was sniffing it, pressing the tip of her nose against it as if it were a dog or a cat.
+
+It was good that she was happy, but it was certainly a little unsatisfactory for Yuu, who had been in an erect state since a while ago.
+
+If anything, for Yuu who had accumulated a fair amount of experience since entering high school, there was no way he was fine with letting Miku, a virgin, take control of the pace.
+
+「Big sis Miku… Geez, big sis Miku!」
+
+He put his hand on her head and called out several times, making her turn his head toward him.
+
+「What is it~… Yuu?」
+
+As Miku looked up at Yuu with a melty expression, a drool was dripping from the corner of her mouth.
+
+「I’d like you to do as I say. I believe it won’t cause harm to either of us, perhaps.」
+
+Turning up the corners of his mouth into a meaningful smile, Yuu suggested that they change positions.
+
+What Yuu suggested was for Miku to get on top of him, who lied on his back, facing the opposite side.
+
+In other words, the 69 position.
+
+He didn’t know whether it was because this position was not very mainstream in this world, or if the women he had been with had simply been unaware of it because they were all virgins.
+
+However, when he tried it with the three members of the student council, starting with Sayaka, they were hesitant to spread their legs and exposed their secret places on top of Yuu’s face at first, but once they started, they ended up getting absorbed in licking each other’s genitals.
+
+「Mufufu… When we do it like this… I can feel the heat of your dick. Ohyoo! It’s making me excited!」
+
+Even after the change in direction, Miku continued to rub her cheeks against his penis and press her nose against it, enjoying its scent as usual.
+
+She occasionally kissed and licked it, but rather than caressing, these seemed to be acts that stemmed from her own curiosity.
+
+Rather than forcing her to suck it, he was letting her, who was inexperienced, do whatever she wanted, but he couldn’t help but react to her warm breath and the feel of her soft, plump skin and lips.
+
+Before he knew it, pre-cum started to leak out, which pleased Miku even more.
+
+On the other hand, Miku’s 23-year-old virgin vagina was exposed defenselessly close to Yuu’s face.
+
+Grabbing her thighs, he noticed that their inner sides were covered with traces of love juice, and even though she had just washed it, it was already brimming with the scent of a female in heat.
+
+The juiciness of her vagina reminded him of ripe fruit.
+
+First of all, as if to have a taste of it, he grabbed her soft and big ass, pulled it close to him, and then put his mouth on her vagina.
+
+The area around his mouth immediately became wet and sticky, but Yuu sipped the juices without paying it any mind.
+
+Slurp, slurp, slurp!
+
+「Hyaun!」
+
+He sucked it while sticking out his tongue to the limit and licking it up and down.
+
+Splish, splish. Chuupu, sluuuuuuuurp!
+
+「Hiin! Y, Yuu?! Ahii! S, sucking me, down there is… hyaa, ahiin!」
+
+He could hear Miku’s voice, but Yuu’s cunnilingus did not stop.
+
+Spreading the chasm with his fingers, he stuck his tongue as deep as possible into her vagina and moved it around.
+
+「Ahn, ahn, ahn! Hyan… I can’t concentrate on your dick… Hiin! If you lick me so intensely… Ah… Aaaaahn! Wha! What?! Aun! That place is… Ahh, ahh, so good, it feels so good! I, I have never felt something like this… Auu, auu.」
+
+After licking her entire vagina all over with his tongue and getting his face wet with love juices, Yuu shifted his position a little, turned over the hood with his fingertips, then changed his target to the protrusion he had probed with the tip of his tongue.
+
+Just by giving it a little stimulation with the tip of his tongue, blood immediately gathered in the clitoris, making it swell up.
+
+When he inserted the finger of his right hand halfway into her vagina and moved it from the second joint to the tip, it made a schlupping, sticky wet sound.
+
+「Nghii… Hnn, ahn, hyaa… S, something is coming! Ahn! Aah… Yuu, Yuu, anymore than this will be… Aaaaah!」
+
+No longer had the leeway to sniff his penis, all Miku could do was lie face down between Yuu’s legs and let out a muffled moan.
+
+Sometimes, her body jerked up and quivered.
+
+Paying no mind to such Miku, Yuu was absorbed in caressing her.
+
+That was because at a time like this, being able to make the woman feel good would give you pleasure as a man.
+
+As Yuu made use of his tongue liberally and licked her up in a bold manner, Miku raised her face and arched her upper body back.
+
+「Haan, aaaaaaaah… Ahn, ahn, cumming! C, c, cumming! Yu…u… I, I am… Ahii! Hii… Hii, hiin! … C, cumming!」
+
+Miku, whose body had been quivering from the pleasure that washed over her, went limp a short while later and plopped down to Yuu’s nether region, just like before.
+
+「Omph!」
+
+Maybe the lower half of her body had also gone limp at the same time, her crotch was pressed against Yuu’s face more strongly than before.
+
+Since Miku had also failed to give him a satisfactory fellatio, Yuu was nowhere near close to reaching climax, and was itching to undo the 69 position and moved on to the main event.
+
+But then a mischievous desire welled up inside him.
+
+Yuu, who had been seized by a strange arousal after not only getting his face covered with love juice but also getting enveloped with the scent of a female in pleasure, changed the direction of his face and played with her clitoris by sandwiching it between his lips.
+
+「Hiinghh! W, wa-wa-wa, wait a… hiiin! I, I came, I came already so! Ahn, you mustn’t lick me so intensely!」
+
+In the end, Yuu continued the cunnilingus until Miku came one more time.
+
+---
+
+## Chapter 87 - Special Examination (4) ~WHITE LOVE~
+
+When he rolled Miku, who had just come continuously with cunnilingus and was completely drained of strength, onto her side and then raised his upper body to look at her, beastly desires blazed up inside of Yuu for that slovenly feminine body.
+
+Perhaps it had something to do with the fact that even though they had done a 69, Yuu was still unable to reach climax.
+
+「Big sis… Miku!」
+
+「Ahn!」
+
+Going on top of Miku, Yuu held his raging with his right hand, fitted it into her sopping wet vagina, and then inserted it into her in one go.
+
+「Nghh, nghh, nghh, nghh, nghh… Ahh, hiii… it hurts… Yu… u… Ahh… Haan!」
+
+「Ohh, ooh… Guh…」
+
+Not noticing that Miku grimaced at the pain of defloration, Yuu got so absorbed in shaking his hips persistently.
+
+Even though he encountered strong resistance from the vaginal flesh midway through it, he gradually completed the penetration by pistoning single-mindedly, and eventually poked the deepest part of the vagina.
+
+「Oooh… Kahaa… Aah… It, it feels so… good…」
+
+Feeling an electrifying pleasure running through his entire body, Yuu thought he would end up coming if he continued as he was, so he temporarily stopped moving his hips.
+
+When he buried his face in her neck onto which her messy hair was stuck and was enjoying her feminine scent, Yuu came back to his senses.
+
+Then he realized. The fact that he had gone and inserted himself into a virgin woman mindlessly, like a virgin who had obtained an opportunity to have sex for the first time.
+
+Her forehead glistening with sweat, Miku still furrowed her eyebrows even now, but then she opened her eyes slightly, looked at Yuu and smiled.
+
+「A, all of it is in… right? I feel like… my stomach is full with your dick, Yuu… Oh…」
+
+「Ah… I’m sorry, big sis Miku! For doing it so forcefully. It, it must be painful, right?」
+
+「Huh? It was certainly painful, but… there’s nothing for you to apologize for, you know, Yuu? A little bit of pain is nothing. I mean, it is in exchange for the womanly pleasure of being able to accept a man into her, after all. And if the other party is you, Yuu, it makes me all the more happy.」
+
+「Big sis Miku!」
+
+「Ahn… hnn…」
+
+Sure enough, not only was Miku, who had her glasses off, tiny and cute in every way, she also boasted a figure that stirred one’s manly desires in spite of that.
+
+If you were to ask men with the original world standard, in eight or nine cases out of ten, they would probably wish to make her their girlfriend.
+
+However, compared to Elena and Sera, she was not so much of an exceptionally beautiful girl.
+
+She was only on the level of a cute girl you caught sight of on the street every once in a while.
+
+However, even though they had only met for a short time, she accepted him to such an extent as a little brother and as a man, so it was impossible for his affection for her to not grow stronger.
+
+As he brushed her messy hair with his right hand, Yuu held her head and pressed his lips against hers.
+
+As expected, kissing felt good.
+
+Starting out with pecking-like kisses, they gradually moved to passionate kisses as they exchanged kisses for a long time.
+
+Taking Miku’s right hand with his left hand, he intertwined their fingers to form a lover’s hold.
+
+「Nnnh~n… Nmm, chuu, chuu, chuupa… Aahn, I can feel it… that your hard and hot dick is inside me… Hnn, ahn! No way, even though you’re not moving, I feel tingles in the depth of my belly! Nghh… Amm… Lick, slurp, chuuu…」
+
+After exchanging deep kisses as if they were devouring each other’s mouths, Yuu pulled his lips away just a little and whispered with a smile.
+
+「Are you okay now? Can I start moving?」
+
+「Yes… Come to me, Yuu… Aahn!」
+
+Starting it out slow, he went with a short-stroke pistoning to let her get accustomed to it.
+
+Miku extended her right hand toward him as well, so he shook his hips lightly as they intertwined their fingers with both hands.
+
+Compared to when he penetrated her at first, the stiffness of Miku’s body had eased, and the love juice that oozed out acted as a lubricant, making it easier for him to move.
+
+This time, after pumping in and out of her a few times on the shallower parts, he thrust all the way into Miku’s deepest part in one go.
+
+Each time he did, Miku reacted with a jerk and let out a higher and higher-pitched cry.
+
+「Ahn, ahn, ahn! Ah… Haan, haan… Haun!」
+
+「How is it? Are you starting to feel good?」
+
+「Yu… u… nghh! Since a while ago, I’ve already been… Auun! Feeling, good!」
+
+「Glad, to hear that… There!」
+
+「Kyan! Geez… Yuu, stop teasing, your b, big sis…」
+
+「Well, you’re so cute, so…」
+
+While shaking his hips, Yuu was looking closely at Miku’s debauched figure as she lay on her back.
+
+Her long black hair was spread freely and haphazardly across the pillow.
+
+Her pale skin was now dyed pink and every time Yuu thrust his hips into her, she jerked her chin up as if unable to endure it, or moaned and shook her face from side to side as if trying to resist it.
+
+But soon after, she opened her half-open eyes and looked at Yuu with her mouth half-open, which was really sexy.
+
+Her ample breasts jiggled and swayed in sync with the movement of his hips.
+
+Stretching out both of his hands, with the fingers still intertwined with Miku’s, and planting them on the bed to pin her down, he sealed her half-open, wet and glossy lips.
+
+As they twirled their tongues together violently, Yuu’s arousal level went up, and the movements of his hips began to gradually increase in speed.
+
+「Hnn, hnn, hnn, nghh! Hnn, ohh, ohh, ahh, nghh! Hnn… Yuu! Yuu! Auun! No… I feel like… something amazing is coming!」
+
+「Are you about to cum? Sure, big sis Miku…come… there! 」
+
+Leaning over Miku, Yuu buried his face in her moist, sweat-soaked neck as he poked her deepest part.
+
+As a matter of fact, as he got clamped down by her tight vagina, which was unique to virgins, Yuu’s own pleasure had also gone up fairly high, and he was close to reaching his limit.
+
+「Ahn, ahn, ahn~! No, that’s… too intense… cumming, cumming… Aahn! No more… I’m cumming… C, c, cumming~~~!!!」
+
+Just as Miku, who squeezed his hands so tightly that fingernail marks were left behind on them, was about to reach climax, the folds of her vagina contracted and tightened as if trying to squeeze the sperm out of the penis that was buried deep inside her.
+
+「Ahh… Mi… ku… Kaha… I’m gonna cum too… nghh!」
+
+After a moment’s pause, Yuu was also assailed by pleasure that ran through his entire body from the waist, and as he failed to resist it, he ended up shooting off his sperm.
+
+*Splurt, splurt, splurt* As if getting led to ejaculate on its own, giving him no time to delay the climax, he ended up pouring all of it into Miku.
+
+「Ah… Aah… Haan… Yuu, it’s coming out… your hot stuff… so much of it… Ahaa… it’s so amazing…」
+
+「Ha, haha…it felt crazy… good so… I couldn’t hold myself back.」
+
+「Ufufu. Glad to hear that… Ahn.」
+
+After the ejaculation continued for a while, he let go of the hands he had been holding, and then Miku wrapped her arms around Yuu’s back and hugged him tightly.
+
+Yuu also hugged Miku back lovingly.
+
+●○●○●○●○●
+
+「Fwaaaah… Yuu’s semen and my naughty juices are mixed together, making a very lewd smell.」
+
+Dogs and cats had a more developed sense of smell than humans, but when they smelled something that piqued that interest, they sometimes sniffed it while pressing their noses against it.
+
+The current Miku was in such a state.
+
+At the request of Miku, who wanted to smell it by all means, he pulled his penis, which still maintained its hardness, out of her vagina and thrust it in front of her eyes.
+
+The person in question, Miku, had just experienced an intense loss of virginity and couldn’t move right away, so she was still lying on her back.
+
+Instead, a big-sized pillow was placed in the back of her head.
+
+Miku was enjoying his sopping wet penis while touching it with the tip of her nose and mouth.
+
+「Ahaan… I feel like I’m going to get pregnant just from the smell.」
+
+「I’ve actually filled you with a lot of baby seeds, so… Moreover, from what you said earlier, today is your… 『lucky day』, right?」
+
+「Ufufu. You’re right. Amm, lick.」
+
+Miku, with a very happy expression on her face, licked up the wet and shiny pole with her tongue.
+
+As she did so, she pressed the tip of her nose against the glans, and the last of the semen that came out ended up sticking to it.
+
+When Yuu pointed it out to her, she laughed 「Ehehe」, scooped it off with her finger, and then stretched out her red tongue to lick it off.
+
+Then an idea occurred to Yuu.
+
+She had big breasts, so he couldn’t afford not to put them to good use here.
+
+「Say, big sis Miku, you can just stay as you are, so you see… I have a little favor to ask you.」
+
+「Hmm?」
+
+Miku looked up at Yuu with an innocent face.
+
+●○●○●○●○●
+
+ Yuu stood on his knees over Miku, making sure not to put his body weight on her stomach, and put his erect penis in the middle of her breasts.
+
+They boasted such a volume that they could already sandwich it as it was, but he asked Miku to sandwich them from both sides with her arms folded at the elbows.
+
+As she did so, the pressure from her breasts went up, making it feel even better.
+
+「Th, th, this is…! Isn’t this what’s commonly known as 『Paiseme』?!」
+
+「It’s also called paizuri.」
+
+「E, either way, your dick is touching my boobs directly?! Aah… your dick is right in front of me!」
+
+As Yuu began to slowly move his hips while having his penis sandwiched between her breasts, the glans popped out of her cleavage.
+
+Coupled with the fact that she had sweated profusely on her chest area, his penis was still covered with moisture, so it seemed that they had enough lubricant to help with the movements.
+
+When Miku lowered her chin, the glans ended up popping out right in front of her mouth.
+
+「Ooh… Despite how soft they are, they give a perfect amount of fleshy pressure. It feels so good. If you can lick it while you’re at it, I bet it’s going to feel even better.」
+
+「Ufufu. Then… Amm, lick.」
+
+When he pushed his hips forward to make it easier for Miku to like it, the twin mounds rose one step higher along with it.
+
+He shook his hips in small strokes, staying on the borderlines where the tip barely touched Miku’s mouth.
+
+「Ahn… Dick… Don’t run away from me…」
+
+Lowering her chin even more and leaning forward a little, Miku tried to suck on the penis with her tongue sticking out.
+
+As she was, she began to lick it with her tongue and take it into her mouth.
+
+「Nghh… so good… it feels really good. Big sis Miku.」
+
+As he received not only breast pressure on the pole, but also stimulation from mucous membrane on the glans, Yuu’s pleasure began to shoot up.
+
+「Ahaa… I’m also, happy to be able to suck your dick like this, Yuu… Nmm, chuupu, lick…」
+
+「Haa, haa. Then, I’m going to cum just like this, but between swallowing it or having it sprayed on your face, choose the one that you like.」
+
+「Hmm~… I’m torn, but… It’s a rare chance, so I want to swallow your semen, Yuu. Chuu, chuu… Ahaan, it has started letting out clear juices already!」
+
+「Nghh… Your mouth and boobs… feel so good, after all.」
+
+「Amm… Feel free to cum anytime you want, so give me a lot of it.」
+
+*Chuu, chuu* Thinking that he would ejaculate faster if she did so, Miku took the glans into her mouth and sucked on it.
+
+The paizuri continued for a while.
+
+In addition to the sweat on her cleavage, Yuu’s pre-cum and Miku’s saliva also started to drip down, so the slipperiness went up a notch, making it feel even better.
+
+Every time he pumped in and out, it made a slimy, sticky wet sound.
+
+「Haa, nghh… Ahh, it feels good, big sis Miku… I think, I’m going to cum soon…」
+
+「Amm… Lick, lick, chuupa… Hnn, nghh… your dick, is twitching…」
+
+「Ahh, kuh… Guh!」
+
+When Miku looked up, she saw Yuu making a strained look as he got closer to his limit, making her love for him grow even stronger.
+
+As such, she tightened her armpits as much as she could as she stroked the pole with her breasts and licked and sucked the glans.
+
+「Ahh, kaha… B, big sis Miku! Nghh, cumming, here I come!」
+
+「Hnn… Nghh, nghh!」
+
+Miku, perceiving that the time had come as Yuu placed his hand on her head, leaned forward and took his penis into her mouth in one gulp as if she was preying on it.
+
+As soon as she felt the penis she had taken into her mouth tremble a little, *splurt* a gush of cloudy liquid came out and filled her mouth.
+
+「Nghh, nmmm?!」
+
+「A, aah… It, it came out.」
+
+For Miku, each and every one of it was a new experience.
+
+However, as she had personally said that she wanted to swallow it, she tightly pursed his lips to keep it from spilling out, and swallowed the juice, which was so thick that it might get stuck on her throat, one gulp after another.
+
+She ended up spilling some of it, but there was nothing that could be done about it.
+
+*Spurt, spurt* Not stopping after only one shot, the ejaculation lasted for several shots, and even after Yuu pulled his hips back a little, not only was there cloudy liquid peeking out of her gaping mouth still, there were also sticky white threads hanging from her lips.
+
+●○●○●○●○●
+
+Thirsty, Yuu opened the refrigerator installed in the room and took the liberty of taking out a can of tea and drinking it.
+
+When he tried to give one to Miku, she said, 「If possible, I would like the one you are having」, so they drank the 350 ml can together.
+
+She said that in the romance manga she read a long time ago, the scene where the heroine, who was given a can of juice that had been partially drunk by a boy, had an indirect kiss with the body as she drank it while turning bright red in the face left an awfully strong impression on her, leaving a yearning on her maiden’s heart.
+
+For Yuu, it sounded like a common scene in romance manga, but for girls in this world, it was unrealistic and pretty much could only be seen in manga.
+
+That was probably why they had such a strong yearning for it.
+
+Even though they had exchanged so many deep kisses until just a moment ago, Miku held the can preciously with both hands and sipped it little by little, which Yuu found charming.
+
+Right now, they were sitting shoulder to shoulder on the edge of the bed.
+
+Having sweated a lot, they were thirsty, so they ended up emptying up the can of tea in no time at all.
+
+After putting the empty can on a nearby drawer and sitting down again, Yuu held Miku’s shoulder in his arm.
+
+Sporting a happy smile, Miku rested her head on Yuu’s shoulder.
+
+Then, she gently put her hand on her lower abdomen.
+
+「Fufufu. I’m sure Yuu’s sperm is doing its best swimming in my womb right now. Make sure you meet my egg and fertilize it, okay? You can do it!」
+
+At this point, it should be hard to tell whether she would get pregnant or not.
+
+Even so, Miku was calling out to the sperm in her womb, hoping to get pregnant with Yuu’s child.
+
+「Say, big sis Miku」
+
+「What is it~, Yuu?」
+
+He noticed that by the time they were done with the paizuri, dusk was descending outside the window and the room was getting fairly darker.
+
+For the time being, they had only turned on the bedside light, so although they could see each other’s faces, the shadows were deep.
+
+She must have realized that it was almost time to say goodbye.
+
+Moving from Yuu’s shoulder, Miku buried her face on his chest and rubbed her cheek against it.
+
+As if she wished to sniff Yuu’s scent until the very last second.
+
+When Yuu called to her, Miku raised her face and looked at him with her round and cute eyes.
+
+「I wonder if the more semen poured into you, the more likely you are to get pregnant?」
+
+「Hmm… I think so, probably.」
+
+「Then… let’s do it one more time!」
+
+「Huh? Huuh?!」
+
+Yuu took Miku’s hand and invited her toward the center of the bed.
+
+That was because if they did it around the edge of the bed, they might end up falling off due to impulsive bouncing.
+
+With Miku in his arms, Yuu lay down on his back.
+
+「This time, do want to try putting it in yourself, big sis Miku?」
+
+「U, umm…! Your dick is?!」
+
+Miku noticed that a hard object was pressed against her lower abdomen.
+
+Earlier, she was so engrossed in her sniffing that she didn’t notice, but from what she remembered, she heard that once a man ejaculated, there would be a need to put an interval.
+
+It was impossible for a man to get hard again in such a short period of time, which was almost no different from going continuously.
+
+「Even though you have ejaculated twice… no way?」
+
+「I can still keep going, you know. Now, let’s do it, shall we?」
+
+「Ahn… Yuu…」
+
+Miku, who was embraced in Yuu’s arms, expressed neither an agreement or a refusal.
+
+Rather, she was so happy that she almost shed tears.
+
+Placing her buttocks in the right position, she put her hand on his penis and adjusted the angle.
+
+「L, like this?」
+
+「Yes, just like that… Nghh.」
+
+「Ah… Ahh, hnn! It, it, it’s coming… innghh…」
+
+Making a squelching sound, Miku’s vaginal opening swallowed the glans.
+
+This time, he thought it would be inserted into her relatively smoothly, but as expected, it was very tight inside Miku, who had just lost her virginity.
+
+Holding each other’s hands, he slowly got connected with Miku, who was staring at him with feverish eyes.
+
+「Ah, ah, aah! Hauu… Hii, ahh, ahh, ahh, ahh, ahh, aaaaaaaaaahn!」
+
+「A, are you okay?」
+
+Miku, who knitted her eyebrows, collapsed onto Yuu’s chest with a plop.
+
+At that moment, *squiiish* her ample breasts were pressed hard against Yuu’s chest.
+
+「Somehow… I managed to put it in, but… as I thought… y, your dick is so big, Yuu.」
+
+「Fufufu… Inside of you… a, also feels very good, big sis Miku.」
+
+「Nufufu. That makes me happy.」
+
+Raising her face, Miku smiled and pressed her lips against his.
+
+*Chuupa, chuupa* After exchanging kisses, Miku started shaking her hips.
+
+*Jiggle jiggle* Ending up getting drawn to her breasts, which swayed wildly each time she did, he let go one of her hands, and then grabbed and fondled it, scooping it up from under her.
+
+Eventually, as Yuu himself began to move and thrust his hips upward, Miku’s coquettish cry grew higher and higher in intensity.
+
+---
+
+## Chapter 88 - Weekend Plans ~Confession~
+
+It was the evening of the day after Yuu underwent the special examination at the Saitama University Hospital and had sex with his half-blood elder sister, Miku, at Rumiko’s request.
+
+As soon as Yuu came home, he called Martina and Elena into the living room and brought up a matter to them, which immediately enveloped the room with tension.
+
+This was because although Yuu had told them a long time ago that he had joined the student council, today he confided to them that he was in relationships with its three members (Sayaka, Riko, and Eimi) simultaneously.
+
+Sayaka had a fiancé, which was decided by their families.
+
+However, having been in a relationship in which they had connected in the bodies over and over again, it was clear that she had feelings for Yuu.
+
+She had agreed to continue this relationship for the duration of this term of the student council at the very least.
+
+Speaking of the woman that Yuu liked the most, it would be Sayaka, but he also liked Riko and Eimi, their fellow members of the student council.
+
+He had also ended up having a love affair with a number of other girls, including Youko and Kazumi who were first-year students like him
+
+For the time being, he needed to at least tell them that he was in relationships with the three members of the student council with whom he was closest.
+
+Martina and Elena ended up freezing in place at the sudden confession.
+
+Martina closed her eyes and thought about something.
+
+Elena, on the other hand, was hanging her head, mumbling in a voice so low that others couldn’t hear it.
+
+After a while, Martina opened her mouth with a resigned expression.
+
+「I thought, or perhaps I hoped, you would get into those kinds of things at a much later date. Haa… Like father, like son, I guess.」
+
+「Huh?」
+
+「Hmm?」
+
+Martina answered succinctly to Yuu and Elena who expressed voices of doubts.
+
+「It means Yuu-chan is also Sakuya-san’s son.」
+
+At her words, Yuu nodded his head in understanding, but Elena still seemed unconvinced.
+
+「Well, Sairyou is a co-ed school, so I knew you would get into a relationship with a girl sooner or later, but… Don’t you think it’s still too early for you, Yuu? It’s only the first semester of your first year, you know? Can’t you wait until you become a second year…?」
+
+「Compared to Sakuya-san, who had his first in the fifth grade, it’s still within the realm of common sense, I suppose?」
+
+「Huh?」
+
+As expected, it seemed Elena did not know the beginning of the Sakuya legend.
+
+「As expected, I was surprised to hear that you are in relationships with the three of them simultaneously, but… We’re talking about Yuu-chan who is overflowing with boyish charms here, so I guess it can’t be helped. It’s better than having them fight over him and cause trouble. Rather, what I’m more interested in is what kind of girls the other parties are. C’mon, tell me more about them, okay?」
+
+「Ah… Yes.」
+
+Martina, who was facing Yuu, suddenly leaned forward.
+
+Elena also seemed to be curious about it and was staring fixedly at Yuu.
+
+As far as Yuu was concerned, he would like to end it with only a short confession, but now that they learned there were girls he was in relationships with, it was probably inevitable that they became curious about them.
+
+Yuu resigned himself and began to talk.
+
+「The first one is Sayaka-senpai, the student council president. She is the daughter of the president of Komatsu Group, a well-known manufacturer of motorcycles and cars.」
+
+「「Huh?」」
+
+「It seems their motto is 『Be accomplished in both the literary and military arts』, so not only does she have excellent grades, she also holds black belt in several martial arts. Suppressing the strong and supporting the weak, she is the model of a student council president, so she is popular among both boys and girls at school. Though, she also has a mischievous streak that sometimes gets out of control when she is absorbed in something, you see.」
+
+Yuu knew from his short marriage that when you wanted to tell a woman the good side of another woman, it was not a good idea to mention her looks.
+
+He deliberately didn’t mention her beautiful looks, and emphasized how wonderful of a personality Sayaka had.
+
+Taking advantage of the fact that neither Martina nor Elena said anything, he continued and started talking about Riko and Eimi.
+
+Focusing on the part where they had spent their time cooperating with each other in the student council, he also mentioned their respective family situations that he had heard so far.
+
+Sayaka was the only one who not only had a father on the family register but also sisters.
+
+Riko was an only daughter, born through artificial insemination.
+
+Her mother was a business owner, albeit a small one, and she seemed to hope that Riko, who had been good at studying since childhood, would continue her study until college.
+
+The only man living together with Eimi was her grandfather. Her mother was the youngest of three sisters.
+
+When her mother went to an art vocational school after graduating from high school, she fell in love with a man she met during a vocational training program, leading to the birth of Eimi.
+
+There were only a few female students whom Yuu had been able to find out about their family situation, but among them, Sayaka was the only one who had both parents. Even girls like Eimi, who were born naturally from their mothers’ relationship with a man, seemed to be in the minority.
+
+On the other hand, when it came to boys, like Yuu, it was said that they were all born from natural insemination.
+
+「Hmm, well, I have a general idea of what kind of girls they are. The other thing I’m curious about is, err, umm, which one of you proposed that you should be in relationship?」
+
+「Of course, it was me!」
+
+When Yuu declared so unabashedly, even Martina was taken aback.
+
+For her part, she had feared that his seniors might have made a pass at him, but apparently it was nothing but a needless fear.
+
+「The first person I fell in love with was Sayaka-senpai. It was pretty much love at first sight, you see. She was very considerate of me because I was her junior, but I pushed her hard… In hindsight, I feel like I was pretty forceful in asking her to go out with me. But Sayaka-senpai didn’t seem unhappy about it, so we immediately became lovers, I guess. Then we got found out by Eimi-senpai and Riko-senpai, who were always together with her. And since things had turned out like that, I decided to date the three of them simultaneously.」
+
+Without mentioning the existence of her fiancé, Yuu told them that this was ultimately the result of him falling in love with her and making a move assertively.
+
+Martina couldn’t help but smile at Yuu, who said it straight out so nonchalantly.
+
+「Fu, fu, fu. I suppose you’re just like Sakuya-san in that regard, too. I can’t help but laugh.」
+
+Elena remembered a scene from the past where Yuu told her that he had already lost his virginity.
+
+「Then, you’re already in male-female relationships with those three?」
+
+「Yes. Something like that.」
+
+「Ah, I knew it…」
+
+Then it occurred to Elena that she might end up becoming an 『aunt』 in her teens.
+
+Moreover, it was one thing if the parent was her older sibling, but in this case, it was her younger sibling.
+
+As Elena held her head in her hands, Yuu’s hand gently touched her.
+
+「Big sis, there’s nothing to worry about, is there? No matter how many lovers I have, you will always be my big sister, you know? It seems I have a lot of elder sisters from different mothers, like big sis Sera, but not only are you the only one who was born from the same mother, you’ve taken care of me from the time I was a baby, after all.」
+
+「Yuu…」
+
+Even if they were dating or married, strangers would still be strangers. It was common for a temporary relationship to come to an end.
+
+However, the ties between family members who were related by blood were unbreakable throughout their entire lives.
+
+Though, it was common for the ties between brothers and sisters to fade if they lived far away from each other or had their own families, but the current Elena couldn’t think that far ahead.
+
+At any rate, Elena speedily grabbed Yuu’s hand and took one-eighty, sporting a happy look on her face.
+
+But then Martina said to Yuu in a calm voice.
+
+「Say, Yuu-chan?」
+
+「W, what is it, mom?」
+
+He almost got overwhelmed by Martina’s intensity, which kept him from saying anything back.
+
+「I won’t say right away, but one of these days, make sure to bring Sayaka, Riko, and Eimi to our house and let me meet them, okay?」
+
+「Huh…?」
+
+「I mean, rather than just hearing about them from you, I want to personally meet them and find out what kind of girls you are dating, Yuu-chan.」
+
+「I, I want to meet them too!」
+
+It was only at times like this that Elena immediately jumped on the bandwagon as well.
+
+「Ah, err… We’re going to be busy with student council works, so…」
+
+「Then when can you bring them over?」
+
+Averting his eyes, Yuu looked at the calendar.
+
+It was almost the middle of June.
+
+Truthfully, he would like to avoid letting his lovers meet his mother.
+
+So he had no choice but to postpone it as long as possible.
+
+「W, when summer vacation starts…」
+
+「It can’t be helped. Then I’ll look forward to it.」
+
+「Y, yes. So, I have one more thing to tell you, but…」
+
+For Yuu, this was the main business.
+
+「Both Sayaka-senpai and I have our birthdays in June, so this coming Saturday, you see, we thought about holding a birthday party with the members of the student council, including me.」
+
+「Oh, my.」
+
+He would probably spend the 30th, his birthday, with his family.
+
+Sayaka’s birthday had already passed.
+
+As such, they had discussed holding it this coming weekend, which fell right in the middle.
+
+「The place will be an apartment near the school where Sayaka-senpai lives alone. And then… on that day, I’ll drop by on my way home from school and stay the night there, so…」
+
+He lived at home, so he had never stayed over until now.
+
+For Yuu, who was mentally an adult, it was troublesome, but not only was he still a high school student status-wise, he also lived with his family, so there was nothing that he could do about it.
+
+As such, so as to not cause them unnecessary worry, he thought he should tell them about it.
+
+「Hmm…」
+
+「Eeh…」
+
+Sure enough, both Martina and Elena showed a complicated look on their faces when they heard Yuu’s words.
+
+However, given that he was in male-female relationships with the girls, it was probably better than being all against it and forcing them to go to a hotel in town, or something.
+
+As long as they took his safety into consideration, Yuu thought they had no choice but to accept.
+
+The first to open her mouth was Martina.
+
+「Umm, I also thought I had to tell you about it today, but actually I have to go on an overnight business trip starting Friday afternoon, and I won’t be back until Sunday noon, you see.」
+
+「Huh, is that so?」
+
+By the look on her face, he could tell that she didn’t really want to go.
+
+「Honestly, I don’t want to go, but… starting this year I get more and more responsibilities, and the time I have to go on a trip increase, you see.」
+
+She worked for a local newspaper company, but despite that, it seemed that she still had to go on a business trip outside the prefecture from time to time.
+
+In other words, Martina had risen to such a position.
+
+Martina started out as a part-time employee, but her hard work was highly regarded by the employees she worked with, and she climbed up the ladder to become an associate and then an employee.
+
+Even now, if her superiors still highly regarded her performance and gave her a promotion, as a family, he believed that was a delightful thing.
+
+However, Martina herself seemed to regret that as she got busier and busier, she got to spend less and less time with Yuu.
+
+In addition to that, as someone standing in the managerial position, she was caught between her superiors and her subordinates, and as a former company employee himself, Yuu could easily imagine how mentally demanding it would be.
+
+「Mom, I’m glad that they appreciate your hard work, but if you ruin your body or mind because of it, all of it will be for nothing, you know? If you’re okay with me, I’ll listen to your complaints or whatever, but please be sure to take proper breaks and try not to overwork yourself, okay?」
+
+「Yes, yes. I’ve been making you worry all this time, but from now on, I’m going to pull myself together, so if there is anything that bothers you, please talk to me.」
+
+「Yuu-chan, Elena… Ufufu. I thought you two were still just little kids, but before I know it, you have become such grown-ups.」
+
+「I mean, I’m already an adult, after all. And I’m turning 19 this year.」
+
+「I’ll be 16 years old at the end of this month, huh…」
+
+「I suppose so. First of all, we have to celebrate Yuu-chan’s birthday in a grand way!」
+
+「Ahaha. I’m looking forward to it.」
+
+After the atmosphere became more relaxed, Martina continued the conversation.
+
+「And then, I was thinking of holding a farewell party for Sera-chan, who is going back to Hokkaido this weekend, but… Yuu-chan won’t be home this weekend, right? And I’ll also be on a business trip, so…」
+
+「「Ah!」」
+
+The training period of Sera, who had been coming over to play on weekend, had come to an end, and she would be leaving this coming Sunday.
+
+Regardless of her wishes, it seemed that there was a good chance that she would be assigned to the branch office in Hokkaido.
+
+After they said goodbye here, they wouldn’t be able to meet each other so easily.
+
+That was why, as a farewell party, Martina had planned to invite her to their house for a dinner, but the time didn’t align with her and Yuu’s convenience.
+
+「If it’s Sunday noon, I think mom and I will be home, but taking into account big sis Sera’s departure time, I guess that’s not a good idea, huh…」
+
+「You’re staying in the city, so you should be fine, but I might be late…」
+
+「As expected, should we hold it on a different day of the week?」
+
+「Then, I’ll ask Sera directly!」
+
+It was already past work hours, so Elena decided to try calling the place where Sera was staying that she had asked her the other day.
+
+The landline phone was located at the end of the living room, so they could overhear the conversation the two were having.
+
+As they did, they could more or less understand what they were talking about.
+
+Finishing the call, Elena came back to the sofa where Yuu and Martina were sitting with a wry smile.
+
+「You see, Sera said that as long as she could see Yuu, everything is fine!」
+
+「Haa… Fine. Mama should just go and focus on her work, right?」
+
+「Mom.」
+
+Yuu took Martina’s hand and comforted her, who was a little depressed by Sera’s too frank words.
+
+「And then, you see, since she has Saturday off, she said she wants to go to Tobo Another World Park.」
+
+Tobo Another World Park, or TAWP for short, was somewhat similar to the one that existed in Yuu’s former world, one of the best amusement parks in Japan, located in Chiba but bearing the name of Tokyo.
+
+Based on medieval Europe, it was said to recreate a fantasy world of swords and magic, and even legendary creatures such as fairies and elves.
+
+It seemed that characters taken from fairy tales and myths that would be popular with women, such as Cinderella and Sleeping Beauty, would greet you there in a large group.
+
+Therefore, it was very popular among women from children to adults, and Yuu learned from TV that it was very crowded on weekends and holidays.
+
+「In that case, why don’t we have her come over on Friday evening, have dinner, and then let her hang out with Elena on Saturday? You’ve never been there before either, have you, Elena?」
+
+「I, I guess so.」
+
+His elder sister, who was always sticking to him at home and was introverted and had few friends at school, had never been to TAWP, which was unusual for a girl her age.
+
+This, too, would be a good opportunity for her.
+
+「Then, let’s go with that, shall we?」
+
+「Yes. What should we do for the dinner?」
+
+「For such an occasion, how about getting some sushi? Sera-chan likes fish, doesn’t she?」
+
+As such, it was decided that on Friday, Martina would go to work and directly go on a business trip, and Sera would come to stay over in the evening. The next morning, Elena and Sera would go to TAWP to play, and Yuu would stay over at Sayaka’s apartment after school.
+
+On Friday night, Martina, who acted as stopper, would be gone.
+
+As a result, just how out of control his two elder sisters would become?
+
+For his part, Yuu didn’t not feel a little bit scared, but deep down, his heart was pounding wildly in anticipation, and he was looking forward to the weekend.
+
+---
+
+## Chapter 89 - Farewell Party (1) ~M~
+
+Friday finally arrived.
+
+That day, Yuu went home as early as possible and greeted Sera, who left the office right on the dot and came straight to their house.
+
+As they treated themselves to the premier sushi they had ordered with home delivery, Sera and Elena had a light toast with a glass of chuhai (shochu highball).
+
+Incidentally, perhaps due to racial reasons, Sera was very strong with alcohol. Elena, on the other hand, was not very strong with it.
+
+Yuu was in the mood to drink too, but taking into account the future growth of his body, he refrained from doing so.
+
+While they were eating, time passed peacefully.
+
+On the surface, Elena and Sera seemed to be excited about the Tobo Another World Park, which they were going to visit tomorrow.
+
+However, on a closer look, you could tell that they were stealing glances at Yuu’s body, as expected.
+
+They didn’t put it into words, but their minds must have been filled with thoughts about the main event that would take place after the dinner.
+
+Yuu himself was also casually sweeping his gaze over his two beautiful elder sisters, so he was in no position to say anything about others.
+
+In other words, three people with three different thoughts were excited about the feast that was about to begin.
+
+Yuu was fantasizing about having a double-fellatio like they did the other day, or even putting their buttocks side by side and enjoying them alternately from behind.
+
+Elena wanted to have Yuu cum inside her this time for sure, and she had devised a plan to take advantage of the chaotic situation and have him finish as she clung to him.
+
+However, the one who held the highest expectations was Sera.
+
+Last Sunday, Yuu returned home later than expected, and all she could do was have some kisses with him secretly.
+
+Therefore, betting everything on this night, to the extent that she had brought a large luggage with her, Sera was putting so much enthusiasm into it, unbeknown to Yuu and Elena.
+
+Immediately after finishing their dinner, they took a shower in turn.
+
+Yuu was the first to get in, followed by Sera.
+
+Before Elena, the last one, entered the shower, she insistently emphasized that they should not get started on their own.
+
+As such, Yuu was about to separate from Sera and go into his room, but before he could do so, he was stopped in the hallway.
+
+Sera had already changed into the black lace negligee that he had seen before.
+
+He could tell that she was wearing no bra on top, and on the bottom, she must be wearing a pair of panties so skimpy that he didn’t know if there was any point in wearing them.
+
+As she stood there smiling with her long platinum blonde hair swaying the air, her appearance alone was as lovely as an angel, but inside she was a little devil.
+
+「Yuu, you see…」
+
+Moving closer to him, Sera whispered in a small voice so that Elena, who was in the bathroom, would not hear.
+
+A very nice scent of shampoo and soap wafted over from Sera, who was leaning very close to him.
+
+Upon hearing what Sera suggested, Yuu thought for a moment.
+
+「Hmm… Well, tonight is your farewell party, after all. If you want to do that, I don’t mind cooperating, I guess.」
+
+「Really?! That’s great. Elena will probably be surprised, but I’m sure she will be delighted by it. Ehehe.」
+
+「If that’s the case, that would be nice.」
+
+「Then, I’ll get everything ready, so… Come over as soon as Elena gets out of the bath and enters the room, okay?」
+
+「Got it.」
+
+Waving her hand with a wide smile on her face, Sera entered his elder sister’s room.
+
+If you looked at that part only, it was very charming.
+
+「Big sis Sera sure knows a lot of things, doesn’t she?」
+
+The Yuu of that time simply thought about it in a carefree manner.
+
+●○●○●○●○●
+
+「I’m done!」
+
+Perhaps feeling very ill at ease, Elena came out of the bathroom with her hair still wet.
+
+「Got it. I’m coming.」
+
+「Okay~」
+
+Heaving out a sigh of relief when she heard Yuu and Sera’s voices coming from separate rooms, Elena entered the room with only a bath towel wrapped around her naked body.
+
+Soon after, she could hear the sound of the door getting opened and Yuu coming in after her.
+
+「Huh, why is the room so dark? Sera?」
+
+As soon as she opened the door, Elena noticed that only the orange nightlight was on.
+
+「Big sis, I’m sorry.」
+
+As she heard Yuu’s voice coming from right behind her, she got both of her arms grabbed by him.
+
+Thinking that Yuu was going to actively attack her today, which was unusual, Elena was delighted for a moment, but suddenly the lights in the room were turned on and she couldn’t help but blink her eyes.
+
+There, she could see Sera, who was standing in front of her with a suspicious smile on her face, stretching out the object in her hand.
+
+It was a red rope that had been tied into a knot beforehand.
+
+Moreover, when she looked down at Sera’s feet, she saw that the zipper of the Boston bag she had brought with her was fully opened, revealing a variety of restraint tools and multicolored adult toys used in SM play.
+
+●○●○●○●○●
+
+「Kuuuuh… N, noo, this is just… Hey, Sera, untie me already!」
+
+「Fufufu. It came out better than I expected. It would be a waste to untie it. Come on, why don’t you take a look for yourself?」
+
+Sera, who had been looking carefully from the neck to the crotch, brought Elena in front of the lengthy mirror she was using as a full body mirror.
+
+Elena, who was stripped naked, was bound with red ropes by Sera’s hand while Yuu was holding her down.
+
+This was the so-called tortoise-shell bondage.
+
+Her modest breasts were emphasized by the ropes, which were tied around each side so that the breast flesh was pushed out.
+
+Both of her hands were tied on top of each other behind her back, so they were deprived of freedom.
+
+A rope with knots was also tied between her legs, forming a crotch rope.
+
+It was done while looking at a guide with pictures, but it took about 20 minutes to get to this point.
+
+She was not so much as being familiar with it, it didn’t seem to be her first time doing it. Perhaps she had done this several times before in her hometown.
+
+「What do you think, Yuu?」
+
+Asked by Sera, Yuu looked at every nook and cranny of his elder sister’s bound figure from all directions.
+
+Elena had been saying 「Noo, noo.」 since a while go, but as she looked at her own reflection in the mirror and was stared at by Sera and Yuu, her cheeks appeared to be turning redder and redder.
+
+Rather, even when she got her movements restrained by Yuu and started to get her body bound with a rope by Sera, she didn’t really put up any serious resistance.
+
+『You see, I think Elena has a M disposition. That’s why tonight, I want to thoroughly torment her and expose her true nature. 』
+
+He recalled what Sera had told him beforehand.
+
+When in the world did she notice such a thing?
+
+It seemed that last Sunday, when Yuu came home late, the two had taken a bath together, but…
+
+「Yuu… No… Stop staring at me so closely…」
+
+When Yuu stared fixedly at her, Elena turned her head down and looked embarrassed, which was unusual.
+
+「What are you talking about? Big sis, you look good in it.」
+
+「N, no way… Hnn, ahn.」
+
+It seemed that Sera, who moved around to her back, had pulled a part of the rope on the back.
+
+As the crotch rope tightened, a coquettish cry escaped from Elena’s mouth.
+
+「Kufufu. But this isn’t the end of it, you know?」
+
+「Huh… No… way…」
+
+Sera showed a devilish smile.
+
+The bewildered Elena tried to reject it verbally, but her expression seemed to have a hint of anticipation in it.
+
+Elena’s bondage was strengthened by the things that the merry Sera took out of her Boston bag.
+
+First, a red leather collar, the kind used for pets, was attached to Elena’s slender neck, and a leash connected to it was tied to the doorknob.
+
+In addition, attached belts were attached to a pole, which made Yuu wonder what it was used for, and Elena had the back of her knees and ankles fastened to them with her legs spread wide open.
+
+Perhaps out of consideration so that her knees would not get hurt from being directly on the wooden floor, the bath towel that had been wrapped around her body was folded in half and laid on the floor.
+
+At Sera’s suggestion, Yuu tried to pull on the rope to test it out, and he could clearly see the knot of the crotch rope digging into her chasm.
+
+Furthermore, she had her mouth sealed with a ball gag, and her eyes with a black eye mask.
+
+At this point, Elena could only groan 「Muu, muu」, so they couldn’t understand what she was saying.
+
+With her long, now completely dry hair swaying wildly, she was showing nothing but twisting and squirming movements.
+
+As expected, Yuu felt a little sorry for her, but then he moved his face closer to where Sera, who remained quiet and showed a wide smile on her face, was pointing.
+
+The center of her spread wide legs. He could see that the two ropes that were digging into her chasm were picking up moisture.
+
+Then Sera lightly touched the crotch of the shorts he was wearing as pajamas.
+
+「Oh my, good for you, Elena. Looking at your figure makes Yuu’s dick grow big, you know?」
+
+As he looked at Elena’s restrained figure, on top of that her moistened crotch, he had become rock hard before he knew it.
+
+It seemed that seeing the appearance of his elder sister that was different from usual had made him so aroused that he didn’t even notice.
+
+Elena’s cheeks flushed red when she heard Sera’s words.
+
+「From here on the two of us will take care of you together, Elena. Ufufu. Look forward to it, okay?」
+
+Sera turned around and rummaged through her Boston bag.
+
+Elena, whose vision and mouth were blocked, was huffing and puffing, her cheeks tinted pink.
+
+「Ta-da!」
+
+What Sera proudly held up in her hand was a pitch-black cylindrical object with a flattened end.
+
+It looked like a spatula used for baking cakes, but the flat part was larger.
+
+「What is that?」
+
+「You see, this is something called Spanking Racket.」
+
+As she said this, Sera moved around to Elena’s rear.
+
+Spanking… it’s a word I’ve heard before; While Yuu was having such a thought, Sera raised the Spanking Racket a little and then smacked Elena’s buttocks with it.
+
+Smack!
+
+「MugiiI!」
+
+「Whoa!」
+
+When Yuu also went behind her, he saw the area where she was hit had beautifully turned red.
+
+「D, does it not hurt?」
+
+Even if his elder sister had M disposition, Yuu, who was not knowledgeable about that field, couldn’t help but get a little worried.
+
+However, Sera was indifferent.
+
+She whispered in a quiet voice so that only Yuu could hear.
+
+「This one, you see, despite the loud sound it makes, it doesn’t hurt that much. Spanking can be done by hand too, but it is difficult to control the amount of strength, you see. In other words, it’s an item designed for SM beginners.」
+
+「I, I see…」
+
+「That’s just how it… is!」
+
+Smack!
+
+「Nghh!」
+
+Once again, Sera swung the Spanking Racket and smacked the other side of Elena’s buttocks.
+
+Satisfying sound continuously echoed from the left and right side alternately.
+
+Each time, Elena let out a cry and twisted her body.
+
+Midway through, Yuu noticed something.
+
+True enough, despite the loud sound it made, Elene didn’t seem to be in much pain. If anything, didn’t she seem delighted by it?
+
+「Take this, and this, you perverted, lewd woman! Are you getting aroused from being spanked?」
+
+「Ahh, nghh!」
+
+「Phew. Do you want to give it a try, Yuu? The key is to spank her while cursing her.」
+
+「Nn…」
+
+Yuu took the Spanking Racket.
+
+Now Elena’s small buttocks were bright red.
+
+「Elena, this time you’re going to get spanked by Yuu, you know?」
+
+When Sera spoke to her, Elena shook her head as if she didn’t want it, but the glimpse of her cheeks showed that they were flushed.
+
+Moreover, *wheeze, wheeze* she was breathing so hard that they could tell even from a distance.
+
+Elena’s slender and beautiful backside was exposed defenselessly, and she had been shaking her hips slightly since a while ago. It was as if begging him to quickly spank her.
+
+Sadistic desire for his elder sister rapidly welled up inside Yuu.
+
+「Heeh, you want to get spanked by your little brother so badly? You acute brocon.」
+
+Smack!
+
+「Nghh, hnn!」
+
+In exchange for not using too large of a swing, Yuu spanked her while making sure that the flat part hit her perfectly.
+
+The moment she got spanked, Elena arched her back as far as she could.
+
+「You peep-loving masturbation addict!」
+
+Smack!!
+
+「Hii, hiin!」
+
+「For you to want me to spray my semen all over you, or do you want to become a cumpdump or something?」
+
+Smack!!!
+
+「Muu, hoo!」
+
+Finding Elena’s reaction each time she got spanked amusing, Yuu started to enjoy it, too.
+
+「Wow, Yuu, so amazing! The same goes for your verbal abuse, but you’re pretty talented in this, aren’t you?」
+
+「Ahaha. I got carried away unknowingly.」
+
+「Spanking is fine and all, but this is a rare chance, so I’d like to try a lot of different things today. This time…」
+
+Once again, Sera rummaged through her large bag.
+
+Yuu was a little exasperated, wondering how much she was intending to play with Elena today.
+
+He thought the next thing to come out would be a candle, but his guess was wrong.
+
+What Sera took out was a magnificent feather, which at a glance appeared to be about 20 cm long.
+
+It was probably the feather of a bird of prey, such as a hawk or an eagle. It sported a gradation pattern from dark brown to white.
+
+It had a wooden handle, maybe it was a feather duster.
+
+On top of that, from inside an opaque black plastic bag, which appeared to be an adult store bag, she took out a pink, thumb-sized, oval, cylindrical body connected by a cord to a remote control.
+
+He had never personally used it, but he had seen it in adult videos.
+
+It was a fine item called a pink rotor. There were several of them in the bag.
+
+Sera handed one to Yuu and looked at Elena with a grin.
+
+They had come this far, so he understood without needing her to tell him.
+
+Sera approached Elena, who was still restrained, and touched her collarbone with the tip of the feather duster in her hand.
+
+「Nghh, hiin!」
+
+Perhaps startled by the sudden touch, Elena’s slender body jumped.
+
+「I thought I’d try something different this time. What do you think? This kind of thing, I mean.」
+
+Sera did not continue to touch the same spot, but instead, with a slight pause, she traced the feather duster to the neck, shoulders, and chest.
+
+「Muu~, muu~! Nghh… Muu, hii!」
+
+Elena shook her head, trying to make some kind of appeal, but it didn’t get through to Sera.
+
+If she knew it was coming, she would be able to steel herself for it.
+
+Or, just like the spanking from earlier, if she continued to get tormented in the same place, she would get used to it.
+
+However, with her vision blocked, she was unable to react as she suddenly got traced in an unexpected place.
+
+Every time Sera traced her, Elena’s body shook in an amusing way.
+
+「Nghh… Hnna… Mmph… Mmmph… Hii, hiin!」
+
+When the tip of the feather traced her nipple, the reaction was remarkable.
+
+Perhaps it was much more stimulating than simply touching it with fingers.
+
+Sometimes she traced so lightly that the tip barely touched her, and sometimes she traced strongly, slightly pushing it onto her.
+
+She caressed her breasts here and there with her feathers with varying degrees of intensity.
+
+From spanking to soft touch.
+
+Normally, one might think that this would be not enough, but Sera skillfully played with Elena’s body.
+
+It was exactly as if Elena’s entire body was being played with using the feather duster.
+
+After tracing her nipples thoroughly, the feather duster went down to her abdomen, which was so thin that her ribs were visible.
+
+Come to think of it, big sis is super weak on her sides, isn’t she?
+
+He recalled the fact that although it was pretty hard to wake up his elder sister in the morning, tickling her armpits worked wonders.
+
+「Nghh, hii, hii! Hii, ah! Ahheeeee… Nghh, hnn!」
+
+Elena, who got caressed in the armpit as soon as Yuu recalled that, twisted her body and let out a cry as hard as she could.
+
+「Oh my… So you’re weak here, Elena. Hey, have you heard? The talk that the area that is sensitive when tickled is also your erogenous zone.」
+
+Pausing for a moment, Sera whispered in Elena’s ear.
+
+When she gently traced the other side of her body with her finger, this time a sweet voice leaked out.
+
+As she began to lick Elena’s ear with the tip of her tongue, Sera signaled to Yuu with her eyes.
+
+As he moved closer, a thought occurred to Yuu: this is a rare chance, so let’s try from a different place than usual.
+
+Lowering his body, he brought his face close to the side opposite to the one Sera was tracing with her finger and licked it up.
+
+「Hnn, hnn?!」
+
+Elena’s reaction was remarkable in a different way than before.
+
+She was desperately trying to move her face toward the side that was being licked.
+
+Yuu, who found this sight tantalizing, gradually moved up while kissing and licking her pale skin with his tongue, and stroked her head.
+
+When the expression of Elena, who had been furrowing her brow, softened, Yuu turned on the pink rotor.
+
+A small but audible buzzing sound could be heard.
+
+Perhaps Elena could hear it too, she shook her head slightly in an anxious manner, wondering what he was going to do to her this time.
+
+Yuu put the remote control in the pocket of his shorts and brought the main body close to Elena’s breast.
+
+He touched the area farthest from the nipple with the tip in a circular motion.
+
+「Nghh… Nghh, ah…」
+
+She was trembling a little, but it seemed that the stimulation was still too weak.
+
+Gradually, the circular motion became smaller and smaller, and eventually he touched the nipple.
+
+「Muu, hnnahn! Hii, hiin!」
+
+Elena’s chin jerked up.
+
+「Nghh, nghh, nghh, nghhhhh… Hnn! Ohh!」
+
+He kneaded her nipple around with the tip of the rotor.
+
+Elena raised her face so much that she was looking up at the ceiling, but after a moment she plopped down limply.
+
+「Oh my, oh my.」
+
+Sera’s hand went down and her icefish-like fingertips traced her crotch.
+
+When Yuu looked down too, he saw that the ropes wrapping around her crotch were wetter than before as they dug into her, soaking wet even the area around it, including her pubic hair.
+
+「Kufufu. You came just from your nipples, didn’t you? The you who feel it more than I thought you would is so cute~, Elena.」
+
+「Muu…」
+
+As if to deny it, Elena shook her head, making her bright brown hair sway around.
+
+While fixing her messy hair, Yuu whispered in her ear, too.
+
+「The you who feel it more than usual is so erotic, which is nice, big sis. It makes me want to make you feel it even more.」
+
+「You’re right!」
+
+Yuu and Sera smiled at each other, and Elena, hearing this, let out an inexpressible sigh.
+
+However, looking at the fact that her nipple, was still being caressed by Yuu with the rotor even now, was standing straight, and clear juices were trickling down from her crotch, perhaps her body wished to be tortured even more.
+
+●○●○●○●○●
+
+「Which~ one~ should~ I~ use~ I~ wonder~… Alright, I choose you!」
+
+God knew when it had ended up being found out by Sera too, but she took out a box from under the bed containing three vibrators, named Yuuchin No.1 through No. 3.
+
+They were the ones Elena used to use when masturbating before she and Yuu reconciled.
+
+What Sera chose was the pink one labeled No. 2.
+
+It was the second largest of the three, but it had the strong point of having thick and protruding glans despite its fancy appearance.
+
+Meanwhile, holding Elena from behind, Yuu attacked her not only by playing with her nipples with a rotor, but also pulling the crotch rope to make it bite into her, and licking her nape, neck, and ears.
+
+Perhaps in part because he pressed his erect penis against her buttocks from time to time, the moans leaking out of Elena had increased in sexiness.
+
+She might have come when she twitched and quivered while lifting her chin and moaning loudly.
+
+Sera, who moved closer in silence, bent down in front of Elena’s crotch with the pink vibrator in her hand.
+
+「If you do this to this part here…」
+
+When Yuu, who was also curious, paused his caressing and peeked into it, he saw her trying to make an opening by pulling the two ropes running between Elena’s legs to the sides.
+
+「Nufufu. Dear me, Elena, you’ve become so wet. Come and give it a touch, too, Yuu.」
+
+「Hoh, let me see…」
+
+「Muu… Hnn, nghhii!」
+
+Elena desperately tried to move her body, but since she was bound tightly with her legs spread wide open, it only amounted to movements that aroused one’s lust instead.
+
+Having the ropes pulled to the sides by Sera’s hands, they could see that her place down there was sopping wet with her overflowing love juices, and the folds were writhing as if it was craving for a man’s thing.
+
+As soon as Yuu and Sera’s fingers touched Elena’s vaginal opening, a squelching wet sound could be heard.
+
+Their fingers were easily swallowed up to the second joint, and when they moved them inside, juice that was a little more muddy and frothy than clear leaked out in streams.
+
+「Then, here we go.」
+
+When Sera put the tip of the vibrator to the vaginal opening, it was swallowed very easily with a squelch.
+
+Just like that, it was inserted deep into her vagina.
+
+「Nghh, huh?! Muguu! Nghhh… Nghh, ahh, hnn!」
+
+Given that it used to be one of her favorites, she must have had an idea what had been put inside her.
+
+However, it was hard to tell whether Elena’s muffled moans were an expression of delight, dislike, or a mixture of both.
+
+It went in easily halfway, but it had not yet reached her deepest part.
+
+When Sera signaled to him with her eyes, Yuu pulled on the crotch rope through the one on the stomach.
+
+As he did, the knot hit her exactly at the clitoris, which was swirling with blood and swollen.
+
+「Muu, ahhh… Nghh… Hii, hiin!」
+
+Almost at the same time as Elena arched her body back as far as she could, the vibrator reached the deepest part of her vagina.
+
+「Big sis, did you come again? You sure are sensitive and coming so easily tonight, aren’t you?」
+
+Seemingly unable to even hear Yuu’s words, Elena was moaning and shaking her hair single-mindedly.
+
+However, Sera’s attack was not over just yet.
+
+「Now then, switch on!」
+
+With a click, the vibrator at the very bottom of the machine was switched on.
+
+Elena’s moaning made it hard to hear, but *buzz, buzz* they could hear the sound of something moving.
+
+「Is it moving inside?」
+
+Yuu stroked Elena’s lower abdomen with his palm.
+
+「Yup. It moves and stirs around your vagina. I’ve also used vibrators before, but unlike humans, they stay in motion until you turn them off, you see. The advantage is that you can use it until you cum. But if you get too used to it, you might end up becoming frustrated when you eventually have sex with a boy because you can’t get enough stimulation.」
+
+「Ah, I see.」
+
+Even for men, it was said if a virgin became too engrossed in masturbating with an onahole, he might not fare well when he eventually had sex for real.
+
+To begin with, he believed there were not many opportunities for middle or high school boys who would get obsessed with masturbation to end up having sex with girls in his former world.
+
+「Though, you see… You alone are an exception, Yuu.」
+
+Sera hugged Yuu from behind as he stood up and looked at the figure of his elder sister.
+
+「Once you get a taste of this dick, you won’t be satisfied with a vibrator anymore, after all…」
+
+「Big sis Sera…」
+
+Sera’s hand reached down from around Yuu’s stomach and gently stroked his bulging crotch.
+
+With his eyes glued to Elena, who was moaning intermittently with the vibrator stuffed into her genitals, Yuu entrusted the caressing of his crotch to Sera.
+
+---
