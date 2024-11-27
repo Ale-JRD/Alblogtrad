@@ -1,9 +1,9 @@
-◣◥◇◤◢
+---
 title: trad-2
 description: trad 2
 slug: trad2
 date: 2024-11-27
-◣◥◇◤◢
+---
 
 # Chapter 89 - Farewell Party (1) -M-
 

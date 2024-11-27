@@ -1,9 +1,9 @@
-◣◥◇◤◢
+---
 title: trad-1
 description: trad 1
 slug: trad1v2
 date: 2024-11-27
-◣◥◇◤◢
+---
 
 # Chapter 79 - Inter-class Ball Game Competition (7) -Together-
 
