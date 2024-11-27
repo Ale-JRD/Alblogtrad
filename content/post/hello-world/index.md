@@ -2,7 +2,7 @@
 title: trad-1v1
 description: trad 1
 slug: trad-1v1
-date: 2022-03-06 00:00:00+0000
+date: 2022-03-06
 ---
 
 
