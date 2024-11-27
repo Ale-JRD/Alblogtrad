@@ -1,7 +1,7 @@
 ---
 title: trad-1
 description: Welcome to Hugo Theme Stack
-slug: trad-1
+slug: trad-1-0
 date: 2022-03-06 00:00:00+0000
 image: cover.jpg
 #categories:
