@@ -1,7 +1,7 @@
 ---
-title: trad-2
-description: trad 2
-slug: trad2
+title: trad-2-2
+description: trad 2-2
+slug: trad2-2
 date: 2024-11-27
 ---
 
